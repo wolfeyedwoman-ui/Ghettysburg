@@ -809,6 +809,34 @@ The window stood two inches open on the ordinary night. Somewhere far south the 
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> I wake him with a hot cup of coffee. I'm sitting on the edge of the bed with two cups, with milk and sugar added to each. "Up and at 'em, Marty boy. The bodies be rotting."
+
+---
+
+Two years of soldiering had taught him to wake the way a knife opens — all at once, and pointed. This morning the knife stayed in its sheath. He surfaced slow, by luxurious degrees, following the smell of the coffee up out of the dark like a trout following a fly, and opened his eyes on the vision of her sitting on the bed's edge in the grey-gold light with a cup in each hand.
+
+"*The bodies be rotting,*" he repeated, voice full of gravel and wonder. "God above. Two hundred year of Irish mothers wakin' sons for mass, and not one of them ever struck that note. That's the tenderest reveille ever a soldier got in the history of armies — I'll teach it to the drummer boy; we'll empty the camp in half the time." He hauled himself up against the iron rail and took the cup in both hands like a chalice, and then the first mouthful actually arrived, and he stopped entire.
+
+"...There's *milk* in this. Katie. There's milk in it *and sugar*." He looked at her with the round-eyed gravity of a man discovering his true circumstances. "The army's coffee is boiled tar with the rumor of a bean in it, and I'm after gettin' engaged to a woman with a milk-and-sugar establishment. Aristocracy. I've married up so far I've a nosebleed."
+
+He drank half of it in reverent silence, watching the light come through the curtain, and his eye found her hand around her own cup — found the small bright twist of pin-metal still on the finger where he'd left it.
+
+"Still there," he said, quieter. "I'd half a mind I dreamt the whole night — the yes, the ring, the uncles fallin' out of the sky over Pittsburgh. But there it sits, doin' business in daylight." He leaned over and kissed her, coffee-warm, unhurried, then set the cup on the nightstand beside the coin and the pins and swung out of the bed into his trousers, a man now in the full commerce of a morning.
+
+"Right. The day, so — and mark the joke of it while you're markin' things." He counted it while he buttoned. "You're for the church on High Street: the letters, the Tiger, and whatever the fair hand turns out to be to you. And the priest I'm wantin' for Sunday — where does a priest live, Katie? *The church on High Street.* The whole of our futures does its business in the one buildin' this mornin'." He pulled his braces up over his shoulders. "So here's your second errand, Mrs. Ward-that's-promised, if you'll take it: any priest crosses your bow in that church, you *book him*. Sunday, the pair of us, before God and whatever congregation a burial detail and a bawdy house can muster between them — and don't let him bolt behind the banns; tell him the groom's a soldier under orders and the Church waives for soldiers, he'll know it's true. If he wants the groom in person, I'm his at the noon hour or after the shift, whichever he likes. Meanwhile Riordan and I is for Hornbeck's trenches, and after — " the grin went sharp a half-second, " — a small matter of paperwork at the provost's, on behalf of the establishment entire.
+
+"And we meet back here at dark, the both of us, and lay out the day's takin's on the kitchen table like honest thieves." He stamped into his boots, took up the coffee, and finished it standing, looking at her over the rim — and whatever the day was about to be, his eyes had already pocketed the morning as clear profit.
+
+At the window he paused, one leg over the sill, exactly the burglar's silhouette the town believed him to be.
+
+"Mind yourself in that church, a stór," he said. "Write the boys their mercy, get the Tiger's mammy her novel, and carry Dinah Freeman's road home behind your eyes — and if the Sister says the name *Katherine* to you, you'll know everything I know, which is that whatever she done, she done it lookin' like an accident she'd take the blame for. Deal her the way you'd want dealt." A beat, and the grin came back, and he was gone over the sill and down into the garden — and a moment later, from beyond the fence, floating back up through the ordinary morning with the thrush doing its ribbons above it:
+
+a reel. Whistled. Bright as minted silver, all the way up Baltimore Street.
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

@@ -723,6 +723,40 @@ He took her hand — the anchor grip, the singer's grip — and held the pin-rin
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> She laughs, loud and bright, a coyote howl of a thing. Her eyes well. "Yes, I will marry you, Mairtín Ward of Galway and the road."
+
+---
+
+The ring went over the knuckle home, and he bowed his head over her hand one second — the only prayer of his life that had ever been answered on the spot — and then her laugh caught him full, that coyote howl of a thing, loud enough for the fields, and he was laughing too, wrecked and bright, the two of them making a noise in a curfewed town that no writ anywhere had a clause for.
+
+"*Of Galway and the road,*" he got out. "D'ye hear yourself? That's how my people names a man — the place and the road, the both together. You titled me like a Traveller, first try, on instinct." He took her face in his two hands, the smithing hand and the bandaged one. "You were always one of ours, a stór. The wagon just come late."
+
+And he kissed her — grave and unhurried, a man sealing the one deal of his life he'd no intention of ever talking his way out of — and her father's coin watched from the nightstand with both its faces, and approved twice.
+
+Which was when the landing floorboards gave themselves away.
+
+"— was that a *laugh*?" Fanny's voice, through the door, entirely failing to whisper. "Nobody laughs like that unless — *Katie*. Katie, open this door or I'll die, I'll actually die in the hall — "
+
+The door had not the least chance. The room filled the way a dry creek fills: Fanny first, curl-papers and wild surmise, then two more girls in shawls over nightgowns, and the room was all questions until Fanny's eye found Katie's hand — found the small bright twist of pin-metal on it — and Fanny made a sound like a kettle achieving its life's purpose and burst simultaneously into laughter and tears, hugging Katie with the whole of her arms and the whole of her heart, and if — for one half-second over Katie's shoulder — her wet face did a second, smaller thing, a hunger quickly folded and put away like a letter, well; only the sharpest eye in the room would have caught it.
+
+Het arrived last, lamp up, silk closed to the throat, surveying the riot in her hallway-turned-chapel with the expression of a woman prepared to fine everyone present. Her eye went: Katie's face. The soldier's face. The ring of bent pin. The row of its brothers on the nightstand, beside the two-faced coin.
+
+"Married," she said at last, to the room, to the ceiling, to the town beyond it. "The one door out of this county not a soul of us thought to price." And then something moved behind the ledger of her face — the sum coming out, and coming out *paid* — and Madame Hettie Duquesne did an unprecedented thing: she smiled with the whole of her mouth, went downstairs in her own house, and came back up with the Monongahela and six glasses on a tray, like any bride's mother in Christendom.
+
+"To Mrs. Ward-that's-promised," she said, pouring, "who answered my door bare and my question with a shrug, and got herself engaged by Saturday. Gentlemen of the committee — " she raised her glass an inch toward the shuttered window, toward Quinn's drum and Zeller's gate and the whole sleeping respectable town, " — do your worst. The house drinks."
+
+The house drank. Somebody wanted the date and Mairtín said "Sunday, if the Church can run as fast as we can," and the room became all plans at once — flowers there were none, but Trena's boy could get ribbon; the grey gloves were volunteered; Fanny, tearful and shining and organizing at tremendous volume, appointed herself to duties no one contested — and Mairtín stood in the middle of it with his glass, a man with no family watching a family assemble itself around his bride out of nightgowns and contraband whiskey, and thought: *there's her side of the church filled. I'd best go recruit mine off a burial detail.*
+
+It emptied slow, on Het's authority — "*Noon*, ladies, same as ever; weddings keep, sleep doesn't" — and the door clicked, and the room came back to its two selves and its one candle, guttering low now, the night nearly spent around them.
+
+Mairtín set down his glass and looked at her — at the wrecked pins, the fallen dark hair, the ring that had been one of them an hour ago — and shook his head slowly, like a man checking a win too big to bank.
+
+"Saturday," he said softly. "I come up your yard two nights back beggin' a drink off a stranger. And now I'm a man with a weddin' Sunday, a war Monday, and a writ to make a fool of in between." He drew her in, chin on the crown of her head, the last of the candle warming the both of them. "Sleep now, Mrs. Ward-that's-promised. We rob the provost of his spinster in the mornin' — and I never once in me life felt richer goin' to bed a criminal."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

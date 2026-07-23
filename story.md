@@ -905,6 +905,32 @@ Slattery listened to the whole inventory with his head tipped back against the b
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> I take the parchment, pen, and ink from the table at his bedside and wait for him to begin with steady, careful eyes. I take in his face as well, and his muscles and the color of his skin eyes and hair, the way his mouth moves, and where his eyes fall in the telling.
+
+---
+
+She looked, and he let her look — lay there and *presented*, in fact, with the shameless patience of a horse that knows it's being priced.
+
+He was a long man, built for more flesh than the war had left him. The frame said wharf-hand: heavy through the shoulders, forearms roped and veined, hands made for the cotton-hook and the gun-rammer — big, rope-scarred, steady on the blanket — and all of it wasting now, the meat burning quietly off the big bones so that the architecture of him showed through like a barn in November. His skin had gone the color of church candles, fever-sallow over grey, with the sun's old signature still on him: a hard brown line at the collar and the wrists where Louisiana ended and the man began. The hair was dark copper — rust and river-water — curling flat at the temples with sweat, and three weeks of red-gold stubble climbed a long jaw below cheekbones the hospital rations had brought up sharp as gunwales. An old white nick ran through one eyebrow, some night on some wharf that had ended worse for the other man.
+
+The mouth was wide and did half his talking — hung easy at one corner between sentences, shaped his words lazily, like a man turning tobacco over — and the eyes did the other half and most of the living: whiskey-amber, quick, lit from somewhere the wound hadn't reached, the whole remaining fortune of him concentrated there while the rest of the estate sold itself off.
+
+And in the telling, they traveled. To her mouth, when the smirk lines showed. To her hands, long and frank, as she squared the parchment and drew the cork — the appraisal of a man who ranked hands above nearly everything. Down the line of her throat to the top button of the cream, and back up, unhurried, entirely unashamed: a man reading the menu in a house where he knew he'd not be dining. And then — to the little bright twist of pin-metal on her finger. Where they stopped. And something in him visibly picked its interest up off the table, carried it to the far side of a fence, and set it down there, still burning.
+
+"Take all the time you like with the lookin', missus," he said, watching her watch him, vastly comfortable. "There's less of me every week — buy now." The corner of the mouth came up. "And I'll confess the traffic runs both directions, since you're bred too honest to blink and I'm too shot to bother lyin'. If that ring on your hand wasn't tinker work off a man I'd call road-kin — I'd be spendin' the last of me strength this minute makin' a scandal of meself over you, and countin' it the finest use of the remainin' estate. A woman with undertaker's eyes and a mouth like the start of trouble, come to write me lies in her best hand — Jaysus, missus, dyin's wasted on the well-companioned." The amber eyes went to the ring once more, and came away clean. "As it stands: I'll admire you like a Christian. From the pew. He's a lucky man, and I've told him so through a shutter.
+
+"Now." He turned his face toward the slatted window, where the light came through in bars, and she watched him do a thing she'd seen dying men do before: gather a face out of the air. An old woman's face, somewhere in Tuam, being assembled behind his eyes so he could lie to it lovingly. The mouth steadied. The voice, when it came, had dropped its salt entirely.
+
+"*Dear Mother.*"
+
+He waited for the scratch of her pen, listening to it like music.
+
+"*It is your own Paudeen, writin' to you by the kind hand of a lady of Pennsylvania, a true friend to me here.*" A pause; the eyes slid to her, one degree of the old glitter returning. "True so far, every word. We'll ease her into the lies gentle — she's a countrywoman; she can smell a falsehood at a mile like rain comin'. The trick, missus, is the same as your trade and mine both." The eyes went back to the window bars. "You lead with the thing that's true."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

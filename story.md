@@ -889,6 +889,22 @@ Then the eyes came back up to her, alive as anything in the building, and turned
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> "My mother was a nurse, and my father's mother and sisters were all nurses, my father was a teacher, his father was a soldier, and my mother's father was an undertaker, which makes me less squeamish than most surgeons fresh out of medical school, since I've seen enough of the suffering and the dying in my thirty-five years than most people do in their entire lifetimes."
+
+---
+
+Slattery listened to the whole inventory with his head tipped back against the bolster, and at the end of it he let out a long, low whistle through his teeth, soft enough not to interest the guards.
+
+"Mother of God. Nurses on the both sides, a soldier, a schoolmaster, and an undertaker." He counted it off against the blanket with one finger, marveling. "Missus — d'ye know what you're after describin'? That's not a family. That's a *war*, complete. The soldier makes the work, the nurses tends it, the undertaker finishes it, and the schoolmaster — " one finger came up, the point arriving, " — the schoolmaster's child sits in a church three weeks after the battle, writin' the letters home. Yous could run this entire calamity in-house and do it tenderer nor the government." He shook his head slowly, with real respect. "The one trade your people's missin' is the priest, and between us I've never once seen a priest improve a battle.
+
+"And *less squeamish than a surgeon* — good. Grand. That simplifies the mornin' entirely." The dry eyes steadied on her, and for a half-second the amusement stood aside and let her see straight down the well of the man. "Because it means I'll only have to lie to the *letter*, missus, and not to the letter-writer. The surgeons has took to givin' me the smile they give the accounts they've stopped chargin' interest on — that's the truth, and you're bred fit to hear it and not blink. Me mammy in Tuam gets the other truth. The one we're about to build her, you and me, out of ink and scenery." He nodded at the board on her knees, at the pen, at the little bottle.
+
+"So. Uncork, schoolmaster's daughter. And write your best hand — she'll show it to the neighbors."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

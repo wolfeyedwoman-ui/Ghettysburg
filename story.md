@@ -343,6 +343,58 @@ Not at her door — below. The front of the house. A fist, official, unhurried, 
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> "Oh god. Why? What could he possibly want with me? Besides the obvious." I sit up, the blanket pools below my breasts. I blink my eyes, rub them. Look over to the wash basin and the spent rubber in the small wicker basket by the nightstand. I yawn. "Alright, let me at least make myself decent..." Then, I grin. I stand up, completely naked, and walk through the doorway, down the stairs, and answer the front door bare.
+
+---
+
+"With a Quinn," Mairtín said to the ceiling, working the pins-and-needles out of his dead arm, "it's never the obvious. The obvious is against his religion — " and then he registered the particular quality of her grin, and the fact that she was crossing the room with no further ceremony toward the door.
+
+"Katie." A beat. "You're never — "
+
+The door. The stairs, receding, unhurried, bare heels on old wood.
+
+" — she is," he told the thrush, with reverence, and moved.
+
+He was a soldier and a tinker both, and so he was into his trousers in the time it takes to say it, boots in one fist, her shawl snatched off the peg with the other — some instinct of gallantry that had no plan attached to it whatever — and he ghosted down to the turn of the staircase, where the shadow was, and stopped. Every law of self-preservation said *garden window.* He stayed on the stair. A man gets few chances in one life to watch a master work.
+
+Below, the bolt went back. The door opened on the grey-gold morning: the street, the thrush still selling its ribbons, and Sergeant Elias Quinn on the porch boards with his paper in his hand and two young privates of the guard at his back.
+
+There was a silence of a purity Mairtín had never before encountered in nature.
+
+Quinn had come to that porch with the entire apparatus of the United States government arranged behind his jaw. All of it was still there. None of it would answer the bell. His eyes went — snapped ceilingward — came down — found no place on God's earth that was safe to rest — and fixed at last, desperately, on the lintel above the door, while his neck went the color of undressed brick. Behind him one private examined the sky as though weather were his whole vocation, and the other looked at his own boots so hard he seemed likely to fall into them. Somewhere across the street, a curtain twitched, and — further down, at her own gate, frozen between two steps with her committee basket on her arm — Miss Constance Zeller turned to salt.
+
+"Madam." Quinn said it to the lintel. The word came out strangled; he cleared it, and rallied on procedure, which was the country he lived in. "You'll — " a gesture, blind, in the direction of the whole of her, " — in the name of decency — "
+
+He gave it up, and did the only thing left to a man in his position: he raised the paper and held it up between his eyes and the doorway, and read to her from behind it, the law hiding behind its own writ.
+
+"By order of the provost marshal, borough of Gettysburg. The women named herein, being persons of notorious ill fame, are directed to quit the borough within three days of service of this notice, on pain of arrest and conveyance beyond the lines." The paper came down just far enough to show his eyes, which had recovered their footing and their spite together. "Katherine O'Shea. *First named.* And others." He wedged the notice into the door jamb at the height of her hand, precise, not one inch nearer her than duty required. "Three days, madam.
+
+"And I'll tell you a thing for nothing," he added, low, and this was Quinn himself now, not the writ talking. "Lists come to my desk in alphabets, or by houses, or not at all. Your name come to it *particular*, wrote out first, in a fair hand. You've a friend somewhere in this town took pains over you. Were I you, I'd be wondering this morning who loves me so." He resettled his cap, about-faced, and found his privates still at their meteorology and their bootgazing. "Eyes *front*, God rot the pair of you — "
+
+And the law went down the steps and up Baltimore Street with its collar burning, and the thrush sang it out of range.
+
+In the hall behind Katie there was a whisper of silk: Het, robe over her arm, surveying the doorway, the street, the wedged paper, and her tenant, in that order, with the face of a woman doing sums.
+
+"Well," she said at last, dry as August. "There's doors answered, and there's doors *answered*." But her eye was on the notice in the jamb, and her voice had lost its floor. *And others.* Three days. It wasn't a raid; it was an eviction of her whole world, served politely at dawn — and led, particular, in a fair hand, with one name that had been given to Quinn like a gift.
+
+Mairtín came down the last of the stairs then, barefoot still, boots in his fist, and he didn't reach for the paper first. He came to Katie and hung the shawl round her shoulders — not to make her decent; the town could go to hell entire — but the morning was cold off the stair stones, and that was the whole of his reasoning, and it showed.
+
+"I have seen cavalry charges," he said, "was better prepared for what met them than that man was for you. The Sixty-Ninth'd carry you at the head of the column like the green flag itself." The delight was real, and so was the thing under it, already working. He plucked the notice out of the jamb and turned it in the light, and his face did what it did over a horse whose teeth had been filed.
+
+"*Three days.* Katie — I know a crooked bill of sale when I'm handed one. This paper's a horse with a hid fault. Quinn's right in the one thing alone: lists don't come wrote that way. Somebody in this town put your name first, particular, and wanted it *seen* first." He folded the paper once, sharp, and put it into her hand, and closed her fingers over it with both of his.
+
+Far off, south of town, thin as the thrush, a bugle: reveille at the field camps. Hornbeck's wagon at six, and a day of trenches between him and this doorway.
+
+"I'm for the fields, or the provost'll have two names in one house. But hear me now." He picked up his boots, and at the door he turned back, and the morning light had his eyes, and there wasn't any devilment in them at all — only the other thing, the further-back thing, standing all the way forward for once. "Three days is a long time in a dealin' family, a stór. Wars has been won in less. I'll be up that yard again tonight, legal or not — and I'll be findin' out on the way who in this town does be sellin' *names* in a fair hand. For that's a trade too. And I know tradesmen."
+
+And he went out through the garden, over the back fence, quiet as a lifted latch, into the smoke-colored morning — and the paper stayed behind in her closed hand, with three days folded inside it.
+
+*— end of Part I —*
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

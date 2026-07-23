@@ -637,6 +637,28 @@ The pins lay in their row by the coin. The window stood two inches open on the o
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> I exhale. Goosebumps form on my shoulders, my breath stutters. "Marty, when will you be able to leave the arm?"
+
+---
+
+*Marty.* The sergeant's word for him, the small flat American coin of his name — and in her mouth, in the dark, it wasn't the sergeant's at all. Nobody had ever said it in a voice he'd have followed anywhere. He filed that away with the pins.
+
+He felt the goosebumps come up under his breath, and the stutter in hers, and he did the animal arithmetic before the other kind: gathered the dark of her hair over one shoulder, out of the way, and brought his arms around her from behind — the good one and the bandaged one both, crossed loose over her collarbones — and drew her back against his chest, so that the question and its answer could at least be warm.
+
+He did not pretend to misunderstand it. She'd asked after the arm the way you ask after a lease.
+
+"You want the dealin' or the comfort first?" he said, low, against her hair. "I'll give you the dealin', for you'd smell the other. All right." A breath. "The truth of the arm is: the arm's near fit now. It dug nine hours today and it's holdin' you this minute. Any surgeon that looked at it honest would mark me for duty inside the week — and here's the part I've told no one: I've been *nursin'* it, Katie. Wearin' the sling for officers, wincin' on schedule, diggin' slow when Hornbeck's watchin'. Since before ever I saw you at the pump — this is no romance I'm confessin', it's plainer and worse. I'd no wish to go back to the war. December cured me of wishin'. I stretched a three-week arm into five like me grandda stretchin' a lame mare's rest, and I felt no shame, and I feel none now.
+
+"So. The number, for you asked for a number and you'll have one. Hornbeck's contract is maybe ten days from done — the trenches is most filled; you can smell the work endin', the town's beginnin' to breathe through its mouth again. When the diggin's done, the detail's recalled, and the walkin' wounded goes south to the regiment, wherever in Virginia the regiment's after marchin' to. Ten days, if the war keeps its present appetite. A fortnight if I dig slow." The smallest breath of a laugh into her hair. "And a stór, I intend to dig so slow they'll think I'm *plantin'* the shovels.
+
+"Now the other half, and mind me, for this is the half I'd want wrote down." His arms tightened, a settled weight, not a grip. "There's two clocks in this room. Your paper says three days. My arm says fourteen. And my people never kept a clock in the length of their history — we kept *seasons*, and we kept *fairs*, and we knew to the day when to be at Spancilhill without ever once ownin' a watch, because you don't need a clock for the things you've no intention of missin'." He turned his head and put the words down next to her ear, plain, one at a time, the way he told the dead their county. "The army can move me. It owns the legs of me; I'll not desert you into widowhood before you're anything at all to be widowed of — a hung tinker's no use to any woman. But *movin'* and *leavin'* is two different trades, Katie O'Shea, and I'm only contracted to the one. There's no road in America I can't walk twice. I have never in my life — not once — lost the way back to a camp I loved.
+
+"And as for the arm itself — " he turned the bandaged forearm slightly where it lay across her, so the candlelight caught the clean white of her own work, her flat even wraps, the knot tied low where the shovel wouldn't worry it, " — whatever day the army takes it back, it's under new management as of tonight. You dressed it. It holds you. First lien, a stór. The United States can wait its turn."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

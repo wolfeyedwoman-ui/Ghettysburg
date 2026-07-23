@@ -136,6 +136,48 @@ He drank, and the rye went down him like absolution, and he sat — across the t
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> "Ya know, it's funny. He always said the exact words you used. Don't fear the dead, it's the living you should fear, for they do all the harm." I sling my glass back, take the whole shot in one swallow. "My grandfather.
+>
+> His hands were so big,
+> you could tell they were made
+> for carrying caskets,
+> for shoveling graves.
+> My grandfather, the undertaker,
+> the gentlest person I remember—
+> he buried half the town.
+> He cut open their bodies,
+> drained their blood and their bile,
+> and tucked them into the ground,
+> tight as babies, in blankets of brown."
+
+---
+
+For once — the first time since the pump — he said nothing at all.
+
+The glass stopped turning under his fingers. Somewhere above, a stair creaked and settled; the candle flame stood up straight in the still kitchen. He had listened the way his people listen to a song at a night fire — eyes down, mouth shut, gone all the way into it — and when it was over he stayed there a moment longer, in the place the song had made, before he came back to the room.
+
+"That's a caoineadh," he said at last, very quiet. "A keen. You've made a lament for him, and you have it *by heart*." He shook his head, slow. "The women of my road could keen — my mother, God be good to her, could raise the hair off a priest at forty paces — but I never in my life heard it done in the American way till this minute. *Tight as babies, in blankets of brown.*" He said the line over the way a dealer bites a coin, testing was it gold the whole way through. "That's the entire trade in two lines, that is. Men has shopfronts and silk hearses and hasn't the half of it."
+
+Het, silk whispering, had taken her lamp off to the front of the house without a word — a professional judge of when a kitchen was full.
+
+Then he crossed himself — quick, workmanlike, the way other men roll up a sleeve.
+
+"And I'll tell you a thing now, and you may laugh at me if you like. Them words I said at your door — the dead's no harm, it's the livin' does the damage — I'd have swore on the Book they were me own. But my mother always said the dead do *lend* their words out. They can't speak no more, she said, so they put their sayin's into the mouths of whoever's doin' their work. And here's your grandda, gone these years, and his own sentence comes walkin' up the yard in a digger's boots — lookin' for *you*." He rapped the table once, soft, with one knuckle. "I'd not call that chance, Katie O'Shea. On the road we'd call that a message delivered."
+
+He turned the glass once more, and when he spoke again the fun was gone out of his voice entirely — not cold, only bare, like ground with the grass off it.
+
+"Now I'll trade you truth for truth, for that's the dealin' way, and your song's put me in debt. Your grandda drained them and settled them and tucked them in himself — and mind, there's a fella in a silk waistcoat by the depot here does that same trade at twenty-five dollars the corpse, and I'd not let him bury a *cat* — but your grandda did it gentle, and one at a time, and that's the whole difference between a trade and a callin'." A breath. "I can't do what he done. We put them down eight and ten to the trench out there. The county's in a hurry and July's in a bigger one. There's no blankets in it, only lime, and the lime's not for their sake. So I'll tell you the one thing I do instead — that I never told a livin' soul, for Riordan'd laugh and the priest would correct me.
+
+"Every man I put down, I tell him where he is. In the last second, before the earth — I lean in and I say it low: *You're in Adams County, in the state of Pennsylvania, three mile south of the town of Gettysburg, hard by the Taneytown road.* Every one of them. Blue and grey alike, for the dead's all the one regiment." He looked up at her then. "My people's road people. The worst thing that can happen a Pavee isn't dyin' — it's dyin' where your own can't find you, in ground with no name to it. So I can't give them blankets. I give them the road. It's what a tinker has."
+
+He reached across and filled her glass without asking — undertaker's-family manners, that; you don't let the bereaved sit before an empty vessel — and then his own, and left the bottle standing between them like a third party to the bargain.
+
+"Now," he said. "His name. Your grandda's. For I've had five hundred men this week with no names to them, and here's you after handin' me a man that's nothin' *but* name — a name and two big hands and half a town tucked in tight behind him. Give me his name and the ground he's lyin' in, Katie, and tonight when I say me prayers — which is an event, mind, the angels do take notes when it happens — I'll tell him his words got where they were goin'."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

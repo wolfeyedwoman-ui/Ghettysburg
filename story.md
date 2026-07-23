@@ -869,6 +869,26 @@ The Sister set the little writing-board across Katie's knees, arranging it with 
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> Fuck, he's handsome, I think to myself. I feel the blush rise in my cheeks and I thumb the pin ring on my hand. I exhale, collect myself, straighten my shoulders, and smirk back at him. "Slattery, one letter off slattern, which would make you named after me." I sit down in the wooden chair by his bedside. "Where'd they get ya? What's wrong with ya?"
+
+---
+
+The Sister waited half a breath for an answer that didn't come, and went back up her aisle with her sums, leaving the murmur where she'd set it.
+
+Slattery, meanwhile, received the slattern joke the way a parched field receives rain.
+
+"One letter off," he said, savoring. "D'ye know, the entire war, and that is the first *literate* insult anyone's paid me. The Yankees just says thief." He shifted himself an inch up the bolster, wincing without ceremony, a man long past performing his pain. "And you'd not be far wrong, missus. Half the Tigers was recruited off the New Orleans wharves, out of establishments — " the dry eyes flicked over her cream and her Bible, and glittered, " — a great deal like whatever fine Christian home it is *you* come from. We're all of us named after you, one road or another.
+
+"Where'd they get me. East Cemetery Hill, dusk of the second — we come up out of the low ground through the batteries, and I was in among the Yankee guns with a rammer in me two hands when some thoughtful boy from Ohio put a ball through me hip at a range of, I'd estimate, four feet. Beside a *cemetery*, mind. I've not decided is that tactless or considerate — saves on cartage either way." He nodded down at the flat wrongness of the blanket over his hip. "And what's wrong with me is the ball went in and set up housekeepin' right where the leg does its swivelin'. The surgeons has a book runnin' — do I keep the leg, the life, or the both. I've taken no position meself. A man never bets his own book." A beat; the creek-dry voice dropped a shade. "Rule two of the fairs, that. Your man'd tell you the same."
+
+Then the eyes came back up to her, alive as anything in the building, and turned her own question around like a coin.
+
+"Now, missus — what's wrong with *you*? A woman with your face, volunteerin' into a buildin' that smells like this one, to take down the ramblin's of dyin' strangers?" The grin was slow and knowing and entirely without malice. "There's a story in that chair. There always is."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

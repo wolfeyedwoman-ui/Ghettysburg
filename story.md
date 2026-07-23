@@ -981,6 +981,28 @@ Then he came back. Unclenched the hands finger by finger, like a man counting mo
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> I set down the pen and the paper. "Let's get you something for the pain, first, before you continue." She brings her basket up to her lap and passes him her thermos. It's full of Jameson whiskey.
+
+---
+
+He took the flask the way a man takes a hand up out of water — and then he got the cap off it, and the smell reached him, and Paudeen Slattery went entirely still for the second time in five minutes, for a different reason altogether.
+
+"...Missus." His voice had gone careful, the voice of a man declining to startle a miracle. "That is not whiskey. That is *Jameson*. That's Dublin in a bottle. That's — " he put his long nose to it again and closed his eyes, " — Jaysus, Mary and Joseph, I'm after writin' me mother the rain's the same rain, and here's you passin' me the rain itself." He looked at her, then at the Bible sitting placid on the basket, then back at her, with something approaching awe. "Under the *Bible*. Contraband spirits, into a guarded ward, under the Word of God, in a cream frock. You'd have owned half the New Orleans wharves inside a year, and the customs men'd have carried your parcels for you."
+
+One unhurried glance located both guards — the door and the rope, furniture the pair of them — and then he raised the flask a discreet inch in her direction, and gave the toast in a murmur, deadpan and word-perfect:
+
+"*To the kind hand of a lady of Pennsylvania — a true friend to me here.*" A beat. "Every word true, and gettin' truer."
+
+He drank. Not greedy — a wharf-man's pull, measured, respectful of another party's bottle — and she watched it land in him and spread, watched the disciplined line of his shoulders come down a half-inch and a shade of the grey retreat from under the candle-wax skin. When he spoke again it was quieter, and for one crack in the drollery, entirely naked:
+
+"That's the first thing's touched the pain in three days that wasn't a surgeon countin' down at me." He recapped the flask with great care and held it out — then paused, the corner of the mouth making its slow climb, the amber lighting back up over the top of the pain. "And I'll make no remark at all about whose flask it is I've just had me mouth on. Admirin' from the pew, missus. The pew's just after gettin' more comfortable.
+
+"Now." He settled the bolster behind him, and the voice came back to working order, the fire lit under it. "Take up the pen, schoolmaster's daughter, while the Jameson's holdin' the door. We'll finish her letter while there's music in me — and then — " the amber eyes went briefly, deliberately, toward the shuttered window and the road beyond it, " — then you and I has one more item of business, and you'll want your memory sharp for it, so go easy on that flask yourself."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

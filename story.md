@@ -208,6 +208,47 @@ Mairtín did not move. Or rather, he moved the way a cat moves when it has decid
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> I grin. "Do you talk, or do you sing, soldier? Because I'd love to hear a song in the old way, in the sean-nós way, and you can take your payment for it in my bed."
+
+---
+
+For a moment he only looked at her, and the look had surrender in it, and gratitude, and a kind of laughing disbelief — a man watching the cards fall his way for the first time in a long season.
+
+"Do I *sing*," he said. "She asks a Galway tinker do he sing. Katie, my family's been paid in suppers and horseshoe iron for singin' since before the Flood — we're the only people in Ireland the famine couldn't stop the music of, for we'd no pianos to sell." He set down the glass. "And I'll tell you what you've done, in your innocence. You've offered a dealin' man a price so far over the mark that honesty obliges me to point it out — a song for a bed, and the bed *that* end of the bargain — and havin' pointed it out, as me conscience requires..." he laid his hand flat on his chest, "...I accept. For it'd be bad dealin' entirely to refuse a woman's price twice, and worse manners to correct her arithmetic."
+
+But then he was quiet a moment, and when he spoke again it was plainer.
+
+"I'll tell you true: I've not sung since Fredericksburg. Not once. The voice does open doors in a man, and I'd my reasons for keepin' them shut. So if it comes out rusty at the hinges — bear with it." He turned his chair a little from the table, sat straight, and held his open hand out to her across the corner of it, palm up. "And you'll give me your hand. That's not forwardness — it's the custom, the sean-nós way. The singer keeps a hold of someone livin', for the song takes him out of the room entirely, and he needs an anchor to find his road back. My mother sang holdin' my father's hand forty year, and they'd not agree on the time of day otherwise."
+
+And then, low — a fireside voice, not a fair-day voice, pitched under the ceiling and inside the shutters, curfew-quiet:
+
+"It's called *Anach Cuain*. Annaghdown — that's lake country, north of Galway town; my people's roads run all through it. The year twenty-eight, a boat went out on the Corrib of a calm September mornin' — nineteen souls and their sheep, away to the fair at Galway. The lake like glass, Katie. Not a breath on it. And the boat was rotten, and it went down within sight of the shore, and the poet Raftery — a blind man, mind — made the lament, and my mother made it hers, and now it's mine to carry. And I never understood the song till this month I'm after livin'. There's always a rotten boat. There's always a fair the young ones is off to, with the day fine and the water flat."
+
+He closed his eyes, and sang.
+
+*Má fhaighimse sláinte is fada bheidh trácht*
+*Ar an méid a bádh as Anach Cuain,*
+*'S mo thrua amárach gach athair is máthair,*
+*Bean is páiste 'tá ag sileadh súl...*
+
+It was nothing like the singing in the taverns, nothing like the regiment's roaring. It kept no time a drummer could follow; the line went out long and level like a road at evening, and then a note would split and curl on itself — grace-notes falling through it like water going over stones — and his voice, which talked so quick and bright, sang darker than he was, older than he was, as if the mother and the grandmothers and the whole walking nation of them were leaning in behind his ribs and putting their shoulders to each long line. He never once squeezed her hand. He held it the way you hold something you are not allowed to spill.
+
+The house came to listen. Bare feet on the stair treads, two pale shapes in the dark of the landing — Fanny and another girl, curl-papers and nightgowns, still as the banister itself. Het stood in the hall doorway with her lamp turned down to a thumbnail of light, and whatever the song was touching in her had been paid off and buried years since, but she stood there the whole length of it all the same.
+
+He sang three verses. And the last line of the last verse he did not sing at all — he let the tune fall away under it and *spoke* it, plain and quiet into the kitchen, which is the oldest rule of the old way: you sing the grief, and then you set it down on the floor and step back from it.
+
+The silence afterward had a shape, like the dent in grass where something heavy has lain.
+
+Then he opened his eyes, and gave her back her hand — laid it on the table before her, careful, the way you'd return a borrowed tool with thanks — and the grin came up through him slow, tired, ten years younger than the voice that had been in the room.
+
+"There," he said, hoarse. "The doors is open now, God help me, and every ghost in Adams County after hearin' where I lodge tonight." He stood, and straightened his jacket like a man presenting himself for inspection, and offered her his arm with all the ceremony of the fair.
+
+"I'm told there's a bed owed me, Katie O'Shea. Lead on — for I've sung meself out of all me divilment, and you'll find you've bought the quietest criminal in Pennsylvania."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

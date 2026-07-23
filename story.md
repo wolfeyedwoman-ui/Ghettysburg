@@ -1103,6 +1103,24 @@ The amber steadied, and one finger rose off the blanket.
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> I repeat: "The column was halted by us the better part of an hour — some snarl in the trains ahead. And there was a girl in it. Nineteen, twenty. Tall for a girl, straight-backed, hair tied up in a blue kerchief. The older woman roped beside her called her Dinah — I heard it twice. And when the guards wasn't mindin', that girl took the water bucket off the hospital cart and went down our line of wounded — our line, missus; the army that had the rope on her — givin' water to men too broke to lift a cup. I asked her, when it come my turn, where she was from. She looked at me one long second, deciding was I worth an answer. She was on her feet. Unhurt. Mindin' a small boy off some other family the whole hour, hip and thigh, like he was her own."
+
+---
+
+He listened the whole way through with his eyes shut, nodding along to it like a man checking a load against a manifest — and at the end the eyes came open, and the one finger rose again.
+
+"Word for word," he said, "save the one. You jumped from *decidin' was I worth an answer* straight to her feet, missus — and you dropped the answer itself. And it's the stitch that holds the shirt." He said it slow, setting it into her the way she'd set the bandage into Mairtín's arm, flat and firm with no bind in it. "*Gettysburg, she says. Long Lane.* Put that in its place and keep it there — for that's the line Freeman'll wear next his skin the rest of his days. A rope on her wrist, an army round her, a river ahead of her — and asked where she's from, she names her street. That's not a girl tellin' a stranger her address. That's a woman statin' her intention to *walk back to it*." He let one breath pass. "Say the whole of her once more tonight in your own room, answer and all, and she's carried.
+
+"And so the business is closed." Something in the long frame let down when he said it — a cargo passed off a man's back after a long portage. "Deliver it to himself or straight to the farrier, whichever comes soonest to hand — but to no third soul, never in company, and never twice. After that it's Freeman's road, God go with him down it.
+
+"Now." The salt came back up the amber like light coming up a lamp wick, and the corner of the mouth made its unhurried climb, and Paudeen Slattery — paid, shriven of his water-debt, and full of another man's whiskey — turned the last of the morning's attention on her like a man with nothing left in the world to spend but curiosity. "The business bein' paid, I'm owed one idle question — a dyin' man's tariff, missus, it's in all the regulations. That tinker silver on your hand, that himself bent out of a pin with his own two thumbs, unless I'm blinder than the surgeons says." The amber flicked to the ring, and back up, bright and unhurried and entirely too knowing.
+
+"When's the jump?"
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

@@ -601,6 +601,42 @@ What he finally said, he said soft, and it wasn't about the war, or the paper, o
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> "I'll let you take it down if you let me redress your arm." I say, looking from his eyes, to his arm, then back to his eyes.
+
+---
+
+"Done," he said, and put out the arm across the space between them like a man sealing a bargain at a fair — which, in every way his people counted such things, he was. "And they say the age of fair dealin's past."
+
+She brought the basin, and the candle nearer, and clean linen from her own store, and set to it, and he made himself hold still for it — which cost him something; she could feel the cost in the arm, the little tremor of a man whose whole schooling was to be the one doing, never the one done for. The last hands on this wound had belonged to a field surgeon working his way down a line of forty men by lantern-light, with the touch, Mairtín observed to the ceiling, "of a fella shoein' a dray horse in the rain" — and the hands before that had belonged to nobody, because he'd rewrapped it himself each dawn, one-handed, by feel.
+
+Her hands were neither. Her hands were her grandfather's, and they knew what they were about: the soaked dressing eased off patient as candle-wax, the furrow washed clean with soap and cool water, dabbed dry, the fresh linen wound firm and flat with no bind in it, each turn of the cloth lapped like shingling. He started, once, to fill the quiet — some remark already forming about the economy of bandages — and then heard the quiet properly, and understood that it didn't want filling, and let the remark die unspent. That was new too. He watched her work instead. Partway through he said, very low, not a question, not an opening, just a fact set down gently between them:
+
+"You've done this before, and not on the dead."
+
+And he left it there, unpursued, the way she'd taught him at the pump a woman's history is left.
+
+She tied the knot off low on the wrist where the shovel wouldn't worry it. He turned the arm over, flexed the fingers, and looked at the work a long moment.
+
+"Better nor the army's," he said. "Better nor me own. I'd say better nor me mother's, only she'd hear it, wherever she is, and come deal with the both of us."
+
+Then it was his turn.
+
+He moved to sit behind her on the bed's edge, one knee either side, not touching her yet anywhere but where the mattress made them neighbors, and he began on the pins. He was true to his word: slow. He hunted each one out of the dark coils patient as a man going through a meadow for a dropped shilling, eased it loose without one pull, and laid it on the nightstand beside the two-faced coin — and he laid them in a row, nose to tail, orderly as money. The fourth or fifth one, he huffed something that was almost a laugh.
+
+"Me mother sold these," he said, against the back of her head. "Pins. Door to door, a paper of pins, ha'penny — her and every travellin' woman in Connacht. I must've carried ten thousand of them. And I'm only after understandin' this minute" — another pin, eased free, laid in the row — "what they were *for*."
+
+The last pin came away, and the whole dark weight of it let go and came down over his hands like nightfall.
+
+It put the third silence on him. She had done it twice before — once with a poem in the kitchen, once with a ballad — and here was the third: Mairtín Ward, wordless, both hands full of black wavy hair by candlelight, holding it the way he'd held her hand through the song, like something he was not allowed to spill. He gathered it loose and drew it back off her shoulders, once, slow, the way you'd draw water; and then he leaned forward and put his forehead down against the back of her head, just that, and breathed.
+
+"There she is," he said at last, barely above the candle. "The whole of her, let down."
+
+The pins lay in their row by the coin. The window stood two inches open on the ordinary night. Nothing in the room was in any hurry at all.
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

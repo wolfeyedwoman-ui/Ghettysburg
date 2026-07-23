@@ -395,6 +395,42 @@ And he went out through the garden, over the back fence, quiet as a lifted latch
 
 ---
 
+## Part II — The Fair Hand
+
+*Her turn (the author, verbatim):*
+
+> I turn back to Het. "Fuck the lot of them. To the devil with them. We fucked the whole regiment, every living soul, serviced every private and cadet and general until their eyes rolled, and they have the gall to issue us an eviction notice." I cross my arms. "I'd dig up the dead and lay them out on their porches for a formal wake before I leave this house."
+
+---
+
+Het heard her out. All of it, to the last word, with the stillness of a woman who knew the difference between rage that needed answering and rage that needed room — and when it was done she stood a moment longer in the cold hall, in her silk, with her arms folded to match, and the first thing she said was:
+
+"We never once serviced a cadet, dear. There's no academy nearer than Carlisle." She moved past her toward the parlor. "Rage is like credit. Extend it *accurately*."
+
+But in the parlor she took down the brandy and poured two — she, who held on principle that liquor before noon was ruin, and whose principles knew when they were beaten — and when she handed Katie hers, the dryness had gone out of her voice and left something older.
+
+"You're right, though, and I'll say it once, so you know I know it. The army came up my stairs for a year — this army, the other army, provosts and preachers and half the vestry of this Christian town — and it's like every man that ever climbed them: ashamed in the morning. And it is never *himself* he's ashamed of. There isn't a fallen woman in Pennsylvania fell without somebody landing on top of her. So. Fuck the lot of them, as you say. Now sit down, drink that, and let's count."
+
+She sat, straight-backed, ledger-straight, and held up one finger.
+
+"One. That paper. Real orders come by houses or by alphabets — the sergeant said it himself, and mark that he said it; Quinn's spite runs at the *town*, not at you particular, and even his spite was puzzled. So before we wage war on the United States, we find out did the United States even sign that paper, or did somebody only borrow its coat. There's a difference between an order and a favor wearing an order's clothes, and the difference is where we live or die.
+
+"Two." The second finger. "The hand. *A fair hand*, he said — wrote out particular. Fair hands in this town belong to clerks, schoolmasters, parsons, and convent girls, and to nobody that pays for his pleasures in the dark, for that sort prints. And here's the thing you're too angry to have seen yet, so I'll see it for you." She leaned forward. "He read it off the paper: *Katherine* O'Shea. Not Katie. There's no man ever climbed my stairs knows you're a Katherine. Whoever wrote that name knew you — not the trade of you. The *christening* of you."
+
+On the staircase there was a rustle: the girls, clustered in their nightgowns on the landing like doves on a wire, listening, and one of them said, small, "Does 'and others' mean all of us?" — and it was Fanny who answered, Fanny who had gone the color of the whitewash and was twisting her bare ring-finger like she meant to unscrew it: "Beyond the lines — where's beyond the lines? It's not — they wouldn't ship us to *Harrisburg*?" — and the word came out of her wrong, too quick, too high, a card shown that nobody at the table but the house's two oldest heads would know how to read.
+
+"This house opens at noon, same as yesterday," Het said up the stairs, in her floor-of-iron voice. "Nothing changes until it changes. Go and dress." And they went, because that voice was the one law left standing in the borough this morning.
+
+Then she turned back to Katie and finished her count.
+
+"Three. Trena's boy runs my errands before six. He'll go to Sparrow's with word my nerves are shattered entire and require a tonic — my nerves, Katie, are the soundest article in Adams County, but Lyman Sparrow reads every hand in this county twice a week, letters and labels and prescriptions and the backs of photographs, and he owes this house more discretion than he's paid for. He'll look at that paper. And your digger" — not a flicker, saying it — "is off among the trenches with five hundred men and the whole day to ask his own kind what walks in and out of the provost's door. Between the druggist and the tinker we'll know by dark what we're fighting.
+
+"Which leaves the one question that matters, and it's yours, dear, not mine." Het set down her glass, and folded her hands, and looked at her — steady, somber, the very look Katie had given the soldier on the stairs — and asked it plain.
+
+"Who in this town knows you're *Katherine*?"
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

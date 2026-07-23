@@ -178,6 +178,36 @@ He reached across and filled her glass without asking — undertaker's-family ma
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> "Solferino Alberto Foschi."
+
+---
+
+He took the name the way he'd taken the whiskey — respectfully, and all the way down.
+
+"Solferino Alberto Foschi." He said it slow, giving each piece its own footing, his Galway mouth walking careful over the Italian stones of it. Then again, softer, to fix it: "*Solferino Alberto Foschi.* God above, that's not a name at all, that's a procession. You could bury a king off the strength of that name and have dignity left over for the horse."
+
+And then something crossed his face — arithmetic moving behind the eyes — and he set the glass down.
+
+"Wait, now. *Solferino.* I know that name — not the man. The ground. There's a town called it, away in the north of Italy. And four summers gone the French and the Austrians met outside it, and — Katie, the papers here was full of it; the fellas at the boarding house read them out loud of an evening. Forty thousand men down between a sunrise and a dark. They say the wounded lay out in the fields three days for the want of hands to lift them. They say — " He stopped himself, remembering he was in a kitchen. "It was Gettysburg before Gettysburg, is what that place was."
+
+He looked at her across the candle.
+
+"And your grandda walked his whole life under that name. Christened for the town, sure — long before ever a shot was fired at it — a gentle man with casket hands, goin' about his callin' under the name of ground that was waitin' the whole while to hold its twenty thousand dead." He blessed himself, the second time that night, slower than the first. "That's three, now, since sundown. The words at your door. Me sayin' his sayin' with no way of knowin' it. And an undertaker christened for a battlefield before the world knew it was one." A short laugh, not entirely steady at the edges. "My mother would've left this kitchen an hour ago and said her beads standin' in the yard. It's a good job I'm braver nor my mother."
+
+He rose then, and fetched the rosary from beside the soap dish where it had lain drying, and wound it back twice around the bad wrist — but he stopped with one bead held between finger and thumb, and was matter-of-fact about what he did next, the way men are about the things that matter most.
+
+"The first decade's family," he said. "The second's the regiment — it's near full, mind. Your grandda can have the start of the third." He pressed the bead once, firm, like a man sealing wax. "*Solferino Alberto Foschi.* Entered this seventeenth of July, in Adams County, Pennsylvania. His words was delivered, and found in good order." And he let the beads fall against his wrist, and that was the ledger closed.
+
+It was then that the drum began — far off up Baltimore Street, the flat *tap-tap-tap* of the provost's nine o'clock, rolling door to door through the shuttered town like a peddler nobody wanted.
+
+Mairtín did not move. Or rather, he moved the way a cat moves when it has decided the rain is someone else's trouble: settled an inch deeper into the chair, took up his glass, and let the drum walk past the window without him.
+
+"There it is," he said. "Nine o'clock, and every honest soldier in his blankets, and Sergeant Quinn out countin' the unhonest." The divilment came back up into the shallows of his eyes, where she'd said it lived. "I'm after becomin' a criminal in your kitchen, Katie O'Shea. So here's the state of the case. I can slip out the garden way this minute — I've slipped past better men nor Quinn, in worse boots, on darker nights — and be in me blankets with none the wiser. Or — " and he let the *or* stand there, open as a gate on a fair morning, " — you can tell me what this house does with a criminal till reveille. I'd remind you I've no more money. I've only the company of me, and I'm told" — the grin went crooked — "I talk."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

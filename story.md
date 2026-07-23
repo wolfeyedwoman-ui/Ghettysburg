@@ -1035,6 +1035,34 @@ She sanded it, folded it, and he watched his own heart go into a stranger's bask
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> I squint my eyes at him, furrow my brow, then set the paper and the pen down.
+
+---
+
+He watched the pen go down, and the hands fold, and gave the squint its due with a small grave nod — a woman right to be wary was a woman worth telling things to.
+
+"The no-paper's not theatrics, missus, so unknit the brow. If a paper's found on you, it's found on *you* — and it's not even your neck it stretches worst. It's the farrier's. A Black man dealin' in words with a Rebel prisoner — they'd not trouble a judge with it." He let that stand one beat. "Your memory or nothin'. Himself swore you'd the head for it. Now."
+
+He turned his face half toward the shuttered window, and pitched his voice under the ward's weather — under the crying boy, under the basins — level and unhurried, a man laying out cargo he'd carried a long way.
+
+"The fourth of July. The rain — you'll remember that rain. I was lyin' in our field hospital out the Chambersburg Pike, west of town, with the ones they'd judged not worth cartin', and the whole day long the army went past us in retreat — seventeen mile of wagons, they said, and I believe it, for I heard every plank of it. Wounded men groanin' in the wagon beds all day like one animal.
+
+"And in the middle of the afternoon, come a different cargo." The voice didn't change, which was itself a change. "Thirty souls, five-and-thirty maybe. Black folk. Men, women, childer down to walkin' age. Roped in a line, two guards mounted to a side, drove along in the rain between an ammunition train and a herd of beef. Free people of this county, missus — anybody with eyes knew it; they'd shoes and Sunday coats on some of them — bein' walked south into Virginia like a purchase.
+
+"Here's what you carry. Three items. The guard was *Jenkins' cavalry* — Virginians; brigade done the gatherin' work all up this valley in June, everyone knew their trade. The officer commandin' that column — a captain, lean man, ginger beard gone grey at the jaw; I heard his own troopers call him — was *Captain Pruitt*. And the road: they was bound for the river at *Williamsport*, and then the Valley Pike south — *Winchester*, and beyond Winchester, *Staunton*. That's where such columns was walked, and that's where the sellin' happens or the claimin', God rot the difference." He breathed. "Jenkins. Pruitt. Williamsport, Winchester, Staunton. That's the spine of it.
+
+"Now the part your farrier will want more nor all of it." For the first time in the telling, something moved under the level. "The column was halted by us the better part of an hour — some snarl in the trains ahead. And there was a girl in it. Nineteen, twenty. Tall for a girl, straight-backed, hair tied up in a *blue kerchief*. The older woman roped beside her called her *Dinah* — I heard it twice. And when the guards wasn't mindin', that girl took the water bucket off the hospital cart and went down our line of wounded — *our* line, missus; the army that had the rope on her — givin' water to men too broke to lift a cup. I asked her, when it come my turn, where she was from. She looked at me one long second, deciding was I worth an answer." The corner of his mouth moved, not upward. "*Gettysburg*, she says. *Long Lane.* And she went on to the next man.
+
+"She was on her feet. Unhurt. Mindin' a small boy off some other family the whole hour, hip and thigh, like he was her own. Tell Freeman that part word for word — he'll want to know what she was *doin'*, not just where she was. It'll tell him she was still herself.
+
+"And you'll be wonderin' — the squint's wonderin' it now — why a Rebel soldier sells out his own army's business to the other side of the rope." He came back around to face her, and the amber was as bare as it had been all morning. "Because road people pays water-debts, missus. I drank out of that girl's hands in the rain, from inside the army that took her, and she knew what I was when she poured. There's no side in that column business. There's only shame, and mine's after choosin' its road home." He settled back against the bolster, spent again, but the eyes stayed on her, and sharpened one last time.
+
+"Now. Say it back to me. All of it — the three items and the girl. Slow, and quiet, and once."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

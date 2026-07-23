@@ -68,6 +68,36 @@ He put his cap on at last, crooked, and looked up at her through the smoke.
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> "Katie. Katie O'Shea. I don't speak in the old way, but I recognize the meaning in the words, so you don't have to mind your tongue around me. I've a sharp mind and an ever sharper eye. My people are half of them from Claire, since the famine, half of them from Milan, since the earthquakes leveled their little Italian town. Now, mind where you rest those eyes. If theres anything devilish lurking around in the shadows, it's not in the shape of ghosts, it's in the shallows of those baby-blue irises of yours, boy." I turn and start walking back toward the brothel. Flicking my spent cigarette directly at the toe of your boot.
+
+---
+
+He looked down at the cigarette smoking against the toe of his boot, and back up at the shape of her walking away, and for one second the whole of him was nothing but delight.
+
+"You're the first thing thrown at my feet in this town I was glad of," he said, and stepped the coal out with a certain ceremony, and went after her.
+
+He fell in half a step behind her shoulder — fair-day manners: near enough to talk, far enough to be sent off — and his voice came along beside her in the dark, low and running easy, like water that had found its level.
+
+"Katie O'Shea. Clare." He said the name the way a dealer tastes a coin. "Sure, I might have known. The Clare women keeps their tongues on a whetstone by the door for the convenience of visitors. Me father dealt horses at Spancilhill fair — that's Clare, the June fair, the greatest horse fair in Ireland and the greatest gatherin' of liars outside Parliament — and he said a Clare woman priced a mare against him once and he never rightly got over it. Went back every June after, like a man pickin' at a scab." A beat. "And the other half of you *Italian*. God help the world entirely. Clare and Italy — that's the two sharpest grindstones in Christendom set to the one blade. I'd sooner argue with the provost.
+
+"And you followin' the auld talk without speakin' it — that'll do grand, that's the best arrangement there is. I'll quit the translatin', so. You've no notion of the relief. It's like walkin' with the stone tipped out of me boot."
+
+At the mouth of the lane a lantern swung — two provost men on their round, unhurried, the drum not yet beating. Mairtín's voice dropped from full to whisper in the middle of a word without a seam in it, and his boots went from cobble to grass verge in the same moment, quiet as a lifted latch — a skill learned long before any army had him, on roads where a lit window meant trouble as often as welcome. The lantern passed. The voice came back up like a fiddle retaking the tune.
+
+"Now. As to the divil in me eyes. *Boy*, she says — and me a full corporal's age." He let that sit just long enough to be cheek. "Them's Ward eyes, Katie O'Shea. Dealer's eyes. Me grandda could sell a bishop a blind horse with that same pair and leave the bishop thankin' him for the privilege of bein' robbed. There's no divil in them at all. There's only *commerce*." The grin tilted, and went a small degree honest. "But I'll deal you this much straight, for you said you'd a sharp eye and I believe you. There's a shadow got into them this fortnight that I never put there. That's not the divil lookin' out, missus. That's only what they've been lookin' *at*." He tipped his chin south, toward the black ridges, and then shook the thing off him the way he'd shaken the pump water. "It'll wash. Everything washes, given lye enough."
+
+The house rose up ahead of them then — a tall brick place set back off the street, shutters closed like folded hands, one lamp burning yellow at the porch, and in the lamp's circle a woman in heavy silk who stood as though the porch had been built around her. Madame Hettie Duquesne took the two of them in with a single sweep of the eye, the way other people read a ledger line.
+
+"Katie." The lamp came up a few inches. "What in God's name have you drug up my yard?" The light found Mairtín's brass buttons, his boots, and — the nose knowing before the eye did — his trade. "A *digger*." It was not a question. "Diggers is double, Private, and you'll scrub to the elbow at my kitchen basin before you lay one finger on my banister — never mind anything else in the house." Then something shifted in her face; her eyes went up the dark street behind them, once, quick, and her voice came down to almost nothing. "And come in off the step quick, the pair of you. Quinn's been by once tonight already, sniffin' round the yard — and it wasn't for drink he came."
+
+Mairtín took off his cap and held it to his chest like a man at a wake, and leaned his head a half-inch toward Katie.
+
+"You'll vouch for me, will you," he murmured. "For I've a feelin' that one's scales weighs souls, and mine's had a hard fortnight."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

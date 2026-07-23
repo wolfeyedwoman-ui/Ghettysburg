@@ -98,6 +98,44 @@ Mairtín took off his cap and held it to his chest like a man at a wake, and lea
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> "My grandfather was an undertaker, of course I'll vouch for a digger. Them's family."
+
+---
+
+That straightened him up with pure pleasure.
+
+"An undertaker's granddaughter," he said, the way other men say *a bishop's niece*. "Well, there it is, then. Them's family, right enough — sure an undertaker is only a digger that's got himself a shopfront and a black coat. The same trade entirely; his end of it's just further in from the rain." He followed her up the steps, cap still at his chest. "And it explains the nerve of you altogether. Undertakers' childer is the only ones in the world raised knowin' the dead is no harm. It's the livin' does every bit of damage ever I heard tell of."
+
+Madame Het looked from Katie to the soldier and back, and made whatever entry she made in the ledger behind her eyes.
+
+"On your head, then, Katie," she said, and stood aside from the door.
+
+The kitchen was warm and smelled of tallow and yesterday's bread, which after two weeks of Gettysburg was very nearly indecent. Mairtín went to the basin without being told twice and scrubbed to the elbow like a man performing a rite — nails, knuckles, the seams of his wrists, the rosary slipped off and set by the soap dish — thorough past what was asked, and Het, watching with her arms folded, thawed by perhaps one degree. When he was done he laid his two dollars flat on the table, side by side.
+
+"One for a bottle," he said, "and the other for whatever the house calls it when a man's let sit in a warm kitchen with the company he came in with."
+
+"The house calls it *paid*," said Het, and the coins went into the silk.
+
+The bottle that came out of the dresser was better than the money deserved — Monongahela rye, half full. As Het set down the glasses, a head came round the door frame: young, freckled, curl-papers askew. "Is he cavalry? Cavalry gets paid in — "
+
+"*Bed*, Fanny."
+
+The head withdrew, giggling, and was gone up the back stairs. Het poured, and while she poured she spoke low, to Katie, in the voice of a woman continuing an earlier conversation. "He wasn't after drink, that one tonight. He was asking *names*. Who lodges here, how long, where from. I told him I keep seamstresses and I never learned my letters." A pause; the cork went back in the bottle with a small, final squeak. "Sergeants don't ask names for their own amusement, Katie. Somebody's been talking to him. Mind who you bring up my yard." One eye went to Mairtín, without heat. "No offense, Private."
+
+"None in the world," said Mairtín. "It's the sensiblest thing anyone's said to me in a fortnight."
+
+He carried the glasses to the table himself and set the first before Katie — the promised glass, stood as sworn — and raised his own.
+
+"*Sláinte*, so. To the trade. All of ours: yours, mine, your grandda's, and herself's there in the silk — sure between the four of us we'd see a soul safe from the cradle to the clay and never once let it want for comfort on the road." And then, before he drank, he tipped the glass and let one drop fall to the floorboards, quick and private, an old habit not explained. "For the ones drinkin' elsewhere tonight."
+
+He drank, and the rye went down him like absolution, and he sat — across the table from her, which was the geography he'd asked Heaven for at the pump — and turned the glass slow on the wood with his brown fingers.
+
+"Now. Katie O'Shea of Clare and Italy." The lamplight had his eyes; whatever lived in the shallows of them was leaning forward. "Tell me about the undertaker. Your grandda. For I've put five hundred men under the ground this week with no story to the one of them, and I've a hunger on me like the Famine itself for a story with a livin' person in it."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

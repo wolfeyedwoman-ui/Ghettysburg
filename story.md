@@ -757,6 +757,34 @@ Mairtín set down his glass and looked at her — at the wrecked pins, the falle
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> "So, tomorrow, I go and take down the letters. Then, Sunday, we get married. Then, I follow you along where ever you go. Sounds like it's back to the road for us, Mairtín. I have family near Pittsburgh. If you'd ever like to try and build a home, they're the folks who would show you how to build it. My father and his brothers were carpenters before my father became a school teacher."
+
+---
+
+He was quiet a moment, and she could feel him doing it: taking the four sentences she'd just said and laying them out like stock on a blanket, turning each one to the light.
+
+"Listen to her," he said at last, wondering, to the ceiling, to the candle, to whatever was keeping the minutes. "Letters tomorrow. Wedded Sunday. Then the road. Friday last I owned two dollars and a bad arm, and now I've an *itinerary*." He held up his hand and counted it off on his fingers — the same fingers, the same slow count he'd used for the faults of the animal, and both of them heard the rhyme of it. "The letters. The priest. The road. There's the whole inventory of a rich man, Katie. I've known fellas with mills wasn't worth half that.
+
+"And *back to the road for us*, she says." His arm tightened around her. "Easy as that, like she's namin' a street she grew up on. A stór — women born under roofs does not say that sentence. D'ye know what you're after volunteerin' for? Rain. The road is nine parts rain and the tenth part is arguin' about where to stop. And you shrugged into it like a coat." He kissed the crown of her head. "You'll do. God help the both of us, you'll more than do.
+
+"Now. Pittsburgh." And here his voice changed — slowed, went careful, the voice of a man picking up something offered to make sure his hands were clean first. "Carpenters. Uncles with hammers, near Pittsburgh, that'd *show me how to build it*." He let out a long breath. "Katie, I want you to know what you just done, for you done it so easy I think you didn't feel the size of it. All my life, when settled folk says *house* to my people, they mean a thing they'd put us in. The county home. The Magdalen wall. Settle, tinker — meanin' stop, meanin' quit, meanin' die slow with a roof on it. And you — " he laughed, soft, beaten, " — you offer me a house as a *trade*. Not a tether. Uncles that'd put a hammer in me hand and show me the joints of it. Nobody in the length of me life ever offered it that way round.
+
+"And here's what I know that maybe you don't, so let me deal it back to you. Even my people stops for winter. Always did. You can't keep a bender tent in a Connacht January — there's a wintering place every family has, the same town, the same field, every year, and the road in summer. That's the *oldest* pattern we have, older nor the wagons." He turned his head; she could hear the grin arriving. "So a house near Pittsburgh, built with your uncles' own hands and mine — and the roads all summer, tinsmithin' and horse-dealin' clear across Pennsylvania, home by the first frost. Katie. That's not me givin' up the road. That's the road *done proper*, the way me grandda'd have drawn it if God had ever once asked his opinion. A house is only a wagon that's earned its rest. And I've *built* wagons."
+
+He was quiet a beat, then added, with the particular pleasure of a man catching the universe in an accounting error:
+
+"And d'ye mark what else you're after tellin' me? *Families weds families* — and I stood in this room tonight and swore we'd neither of us any. And now there's uncles fallin' out of the sky over Pittsburgh with hammers in their belts. You've a side of the church after all, a stór — carpenters and coffin-men and a schoolmaster's ghost — and I've a one-eyed corporal, a burial detail, and possibly a Louisiana Tiger if they'll let him out on his back. We'll fill the both sides yet. It's a poor family that can't be assembled out of what a war leaves lyin' around.
+
+"One thing more, and then I'll let sleep have you." The practical came back into him, low and unhurried. "The weddin' unaddresses the writ for *you* — but the writ still has the house in it. Het. Fanny. The rest. *And others* is still three days wide, and I'll not climb out over a wall and leave the ladder standin' for no one else. So tomorrow runs as planned entire: you to your letters — and Katie, mind it's *her* ward you'll be writin' in; whatever the fair hand is to you, you'll be in the one room with it — and me to the priest, and after the priest, Riordan and I has an appointment with the provost's paperwork. We beat that paper for the whole house, or we've beaten nothing."
+
+The candle was down to the blue at the bottom of the wick. He reached past her and pinched it out, and the dark came in warm, and the last thing in the room was his voice, next to her ear, already half gone toward sleep and entirely gone toward home:
+
+"Carpenters, coffins, coins, and copperplate. The hands that made you, Mrs. Ward-that's-promised. I'll try to be worth the joinery."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

@@ -431,6 +431,88 @@ Then she turned back to Katie and finished her count.
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> "I have no idea." I shrug. "I've fucked cadets. They're no more or less mature than the Commanders. I'll say that." I walk up the stairs and set to washing before the house opens.
+
+---
+
+Het watched her all the way up the stairs, and made no answer to the cadets, which for Het was a kind of applause. Then she sat alone in the parlor a while with the notice flat on her desk, and took out a sheet of her own paper, and wrote *Sergeant —* at the head of it in her small tight hand, and sat looking at that one word for the length of a cold cup of coffee. Then she fed it to the candle and watched it go to ash.
+
+"Not yet," she told the ash, and locked the desk.
+
+---
+
+The sun came up the rest of the way and got to work on the county.
+
+South of town the trenches steamed. Mairtín had made roll at the field camp by the skin of a prayer — in over the orchard wall as the line was forming, cap crooked, invisible by long practice — and by seven he was waist-deep in Pennsylvania with a shovel, and by eight he had what he wanted out of Dan Riordan, because Dan Riordan ran on gossip the way an engine runs on coal.
+
+"The committee ladies?" Riordan wiped his face with the green patch pushed up, which he did when the officers weren't by, on the principle that the empty socket earned him conversation. "Tuesday. Walked their petition up to the provost's door in a column of twos, Marty, banners short of a band — herself in front, the Zeller one, with a face on her like a closed bank. Whole town seen it. A petition against the *houses*, they say. Now what's a petition, only a list with its Sunday clothes on?"
+
+"And who does the writin', inside the provost's?"
+
+"Writin'." Riordan snorted. "Quinn prints like a blacksmith's dog. There's a borrowed clerk does the copy-work, and the clerk" — he leaned on his shovel, enjoying himself — "is drownded, Marty. Up to the oxters in passes and permits and dead men's inventories. That office isn't *writin'* papers these days. It's *pinnin'* them together."
+
+At the noon fire, Zeke Freeman sat down beside Mairtín with his tin plate, and ate half of it before he spoke, quiet, eyes on the middle distance where his eyes always were now.
+
+"That Louisiana man in the church. Slattery." He said the name carefully, like something carried in two hands. "He'll give me what he saw on the Chambersburg road. Told me so through the window, plain out. Man's price is a letter — a long one, wrote proper, to his mother in Tuam, wherever that is — and the priest's too watched to do it and I —" the plate turned slowly in his big hands — "a Black man can't be seen passin' papers with a Reb prisoner, Ward. That's a rope, that is. You know anybody with letters? Anybody that can sit by a window in a church and not be wondered at?"
+
+Mairtín looked into the fire, and in the fire was a kitchen, and a woman in it who had a whole ballad by heart and a sharper mind than the provost's clerk.
+
+"I might," he said. "I'll know tonight."
+
+And at two, when Hornbeck sent him to town with the cart for lime — Hornbeck, who sent Mairtín on the town errands because Mairtín was the only digger who came back with correct change and the cart unsold — he tied up outside the Catholic church on High Street and went in to do his usual trade with the Sister.
+
+It was their arrangement, week-old and wordless in its rules: he brought her the names he turned up — the pocket-seam names, the Bible-flyleaf names, the names inked inside caps — and she gave her dying boys the rest of it, the last mile a soul shouldn't walk anonymous. Sister Marie-Agnès met him in the aisle between the pews-turned-cots, took his little paper of the week's names with lime-grey hands that were the steadiest instruments in that whole groaning church, and blessed him for it the way she always did, like handing back change.
+
+So it cost him nothing to ask, easy, on the way out, in the voice of a man passing the time of day:
+
+"Sister — a puzzle for you. Who in this town would write a *fair hand*? Copperplate, like. There's a paper gone up to the provost's namin' certain of the town women for shippin' out, and the talk is, the first name on it was wrote out beautiful. I only wondered who writes that way, these days."
+
+The bandage she was folding went wrong in her hands.
+
+He'd watched those hands all week. He'd watched them tie off a boy's leg above the knee while the boy screamed into a rag, and never a tremble. And a strip of clean linen defeated them, folded crooked, set down, taken up again — and her face when it came up to him was the face of someone looking at an accident arriving from a long way off, too far to shout.
+
+"The woman on that list," said Sister Marie-Agnès, very quietly. "The first name. Is she — is *Katherine* well?"
+
+And every bell in Mairtín Ward went off at once, and not one of them showed on his face, because his grandfather had trained that face across fifty fairgrounds before ever the army got it. He'd said no name to her. He'd said no *woman*, singular, to her. He looked at the Sister a long, kindly, terrible second, the way you look at a horse whose papers are beautiful and whose teeth are wrong.
+
+"She's well, Sister," he said gently. "I'll bid you good day."
+
+Outside he stood by the lime cart a full minute without loading it.
+
+"*Misli*, sooblik," said the window over his shoulder — Paudeen Slattery's voice through the shutter slats, dry as a creek in August. "Whatever you're after smellin', boy, it's blowin' from inside the church. I heard the linen drop from *here*."
+
+---
+
+Doc Sparrow came to the house at four with his tonic bag, examined Het's nerves with a straight face, prescribed brandy in the exact dosage already being taken, and then sat at the parlor desk a long while with the notice and his spectacles and the good light.
+
+"Two things," he said at last. "First: this order form's genuine army printing, but look at the block. *By order of the provost marshal* — signed by nobody. No captain's name, no adjutant's name. A writ like this with teeth in it carries a signature, Hettie; a writ like this that carries none is a favor somebody walked through that office between a Tuesday and a Thursday, and what walks in on a favor can walk *out* on one." He turned the sheet. "Second thing. The names is in two hands. The *and others*, the body of it — that's the committee's secretary; I've read that hand on temperance handbills till I could forge it drunk. But the first name — " he tapped it, once, gently, like sounding a chest — "that's nobody's business hand. That's a *taught* hand. Schoolroom copperplate, drilled in with a ruler across the knuckles, and there's one trade in America drills it that way and keeps it that way unto death." He took off the spectacles. "The teaching sisters, Hettie. That name was wrote by somebody convent-raised — or convent-*sworn*."
+
+He packed his bag, and at the door he paused, an old man again instead of an instrument.
+
+"Any word of your boy?" Het asked, low.
+
+"The lists say missing," said Doc Sparrow. "The lists." He looked back at the desk, at the paper, with something almost like hatred, from the mildest man in the county. "We are all of us at the mercy of lists this summer, Hettie. Somebody ought to burn the whole alphabet." And he went out into the afternoon.
+
+---
+
+He came over the back fence after dark, as promised, quiet as the lifted latch — and Het let him into the kitchen without a word about legality, which was as near to affection as the house's government went, and left the three of them to it: himself, Katie, and the candle.
+
+He laid his day out on the table like a dealer turning cards. The committee's Tuesday parade. The drowned clerk who pins instead of writes. Sparrow's verdict, relayed from Het's telling: the unsigned block, the two hands, the convent copperplate. And then the last card, which he turned over slowest.
+
+"I went by the church, on the lime errand. There's a Sister there — Marie-Agnès, a Daughter of Charity, down from Emmitsburg with the rest of them. I do a small trade with her: names for the dyin'. Mind, I'll say this first, for it's owed: I've watched that woman all week, and whatever she is, she's no Zeller. She'd hold the divil's own hand while he died and bill Heaven for the candle after." He turned the glass on the wood, once.
+
+"I asked her — easy, sideways, the way you'd ask the time — who in this town writes a fair copperplate hand. And her hands went to pieces on a bandage, Katie. Hands that don't shake at a bone saw. And then she asked me — with no name give to her, no *woman* so much as mentioned singular — she asked me: *is Katherine well.*"
+
+He let that sit in the candlelight between the three of them.
+
+"So there's my day's dealin', a stór. The hand on that paper is convent-taught. And there's a Sister of Charity on High Street who knew your christened name unprompted, and knew there was a list, and looked at me like the accident was her own fault and comin' on slow. I'll not say she wrote it in malice — I'd stake the bad arm she's never done a malicious thing in the length of her vows. But love writes letters too, and love's letters do the worst damage of any; I've buried the proof." He looked up at her then, and his voice went to the soft floor of itself. "So I'm askin' — and you can tell me it's none of a tinker's business, and I'll take that for an answer and pour you a drink besides. Who is Sister Marie-Agnès to you, Katie O'Shea?
+
+"And when that's answered or not answered — there's a second matter on the table tonight, a favor wanted, and I'll tell you now it's a heavy one, for it's got a rope in it if it's done careless. There's a Rebel in that same church — Slattery, a Galway-blooded Tiger of Louisiana, road people, my people's people — and he's holdin' a thing Zeke Freeman would give his right hand for: what he saw on the Chambersburg road, the column they marched the Black folk south in. Zeke's sister's in that answer, Katie. And Slattery's price is a letter — a long one, wrote proper, to his mother in Tuam — and it wants a writer that can sit by a sick man's window in a church and not be wondered at." The grin came up at the edge, tired, but the eyes under it were dead level. "And I sat at a fire today and thought: I know a woman with a whole ballad by heart and a hand the nuns would envy, whatever hand it is. So. Two doors, a stór. You needn't open either. But I'd not be your dealer if I didn't show you both."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

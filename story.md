@@ -577,45 +577,27 @@ He stood then, and took his cap off the chair, and at the edge of the candleligh
 
 ---
 
-The second night needed no bargain. That was the whole difference, and it was the size of a county.
+The latch went down behind them, and the town went away.
 
-On the nightstand her father's coin stood propped against the candlestick, two faces, backing her both ways. On the bedpost the rosary hung with its crucifix still turned to the wall, and nobody corrected it. What was said in that room was said quiet, and what wasn't said was understood, and the candle went out on the two of them like a hand closing over a coin — and the town, the paper, the three days, and the whole United States stood outside in the dark and waited their turn.
+That was the thing he was learning about her room, the second night of his acquaintance with it: it had that trick, the trick of a good camp in a bad country, of making the world outside it into rumor. One candle. The slope of the ceiling like a tent's wall — maybe that was why his shoulders came down from around his ears in here, he thought; the roof pitched like canvas and some animal part of him read it as home. The window over the black garden, open two inches, letting in the smell of a summer night that had finally, three streets from the lime carts, remembered how to smell of cut grass and dung and dew — an ordinary smell, the smell of the world going on.
 
-He was gone before first light, over the fence for the roll call, and if he paused at the bed's edge on his way and touched his lips one second to her bare shoulder — well. She may have been asleep for it. That was hers to know.
+He didn't reach for her. He sat down on the edge of the bed like a man lowering himself into a river, and let out a breath that seemed to have been in him since December, and worked his boots off one against the other, and then just — sat. Hands loose between his knees. Looking at the room. The basin. The coin on the nightstand where she'd set it, two faces up. Her things, few and placed, each where a hand would want it.
 
----
+"D'ye know what I was thinkin', comin' up them stairs?" he said, quiet — the fireside voice, no performance left in it. "I've never in me life had a room. The full truth, that. Born in a bender tent on the Tuam road — that's a wagon-cover bent over hazel, you'd build it in an hour. Then the boat, and the boat was four hundred of us in one dark. Then Boston, and that was a boarding house, eleven men to a floor, paid by the head. Then the army, and the army's a field with a blanket in it." He turned his head and looked at her, and the candle put its light in the shallows of his eyes, and the shallows were all the way open. "So you'll pardon me if I'm slow with it. A door that shuts. A window that's yours to open or not. A woman's own things sittin' quiet where she likes them. I'm like a horse in a church, Katie. I don't know where to put me feet."
 
-The house turned Katie out for war work the way a regiment turns out for review.
+He said it smiling, but he wasn't performing that either. He reached and touched the iron rail of the bedframe, one knuckle, like a man greeting a dog.
 
-It was, Het observed from the doorway with her arms folded, the single most difficult costuming the establishment had ever attempted — not because anything was missing, but because everything had to be *removed*. "Less," said Het, circling her. "Less again. You're a deacon's widowed cousin, dear, not a deacon's downfall. Eyes down, steps small, and if any man on that street knows your face, he'll be prayin' harder than you that nobody finds it out — respectability's a conspiracy, Katie; the whole congregation's in on it." The girls brought tribute: a plain collar, grey gloves, and — from Fanny, hovering at the door with it held in both hands like something that might break — a small black bonnet, church-plain, not at all her plumage. "It's my — I had it from home," Fanny said, and then, too bright, "I never wear it," which everyone in the room heard for what it was: the bonnet she'd been married in, in Harrisburg, in another life. Katie was sent off down Baltimore Street with a basket of rolled lint and scraped-together paper, ink, and two pens, looking — Het gave it her highest professional rating — "like a woman no man would dare imagine."
+"Iron bed, mind. That's lucky. The Good People can't cross iron — me mother'd approve of you entire." A beat. "Everything else about this, she'd have took a stick to me. But the bed she'd approve."
 
----
+Then, working at the button of his cuff with his teeth and his good hand, he got the sleeve up over the bad forearm, and unwound the grey rag of bandage from it slow, wincing, because the day's digging had soaked it and the thing wanted air. The wound underneath was a furrow across the top of the forearm, healing ugly the way wounds heal when they're worked instead of rested — clean enough, angry enough. He looked at it the way a man looks at a debt.
 
-South of town, in the trench-steam, Mairtín leaned on his shovel next to Dan Riordan and said, without preamble:
+"Reb done that in the Wheatfield with the last cartridge in his box," he said. "And I've thought since — the amount of trouble the world took, Katie, the powder mined and milled and carted and rammed, the man marched up from Louisiana or wherever God had him — all that industry, to put one furrow in a tinker's arm and be dug under a Pennsylvania orchard for his wages. There's the whole war in me arm. It don't even hurt but when I'm paid attention to it."
 
-"Dan. I need a man can write like an officer."
+He laid the arm across his knee, bandage hanging loose from his fingers, and looked at her across the small gold distance of the candlelight — at her, standing in her own room, in the middle of her own placed and quiet things — and for once in the length of their acquaintance, Mairtín Ward didn't fill the silence. He let it stand. It was a good silence; it had the room's trick in it; it could have held anything.
 
-The shovel next to his stopped. The green patch came slowly around, and under it Riordan's one eye had gone very wide and very careful, like a man hearing his own sins read back in a stranger's voice.
+What he finally said, he said soft, and it wasn't about the war, or the paper, or the three days, or anything downstairs at all.
 
-"...How'd you know that," said Riordan.
-
-"I didn't," said Mairtín. "Now I do." He put his boot back on the shovel. "Noon fire, Dan. Bring your conscience — it's employed."
-
----
-
-The church on High Street breathed heat and lime and carbolic, and under the painted saints the pews had become a long grammar of suffering: cots in rows, bandaged sums, a boy crying steadily and quietly like weather, the Sisters moving down the aisles grey and level as water finding its way. At the far corner, past a rope strung between two pillars, the guarded rows: butternut and grey, the prisoners' ward, two bored privates on the door of it examining their own thumbs.
-
-When Katie came in with her basket, a wimple across the ward went still — just one, just a moment, the way a bird goes still on a wire when something crosses the sun — and then bent back to its bandages.
-
-The war work was real, and it did not let her stay a stranger to it. The first boy she wrote for was seventeen and had his eyes bandaged, and dictated to his mother in Ohio at the pace of a man laying bricks, and asked her to write that he was *looking better*, and she wrote it, because the pen goes where it's told. The second was a Maine man who wanted his brother to have his boots and his girl to have nothing at all, said with such flat finished calm that the pen learned something about the size of what a small letter can carry.
-
-And then the grey water was beside her: Sister Marie-Agnès, close to, at last — a plain-faced woman of about her own age with lime-burned hands and eyes that did not sneer, had never once sneered, which was so much worse — saying only, level as any hospital instruction: "There is one more can use your pen, if your charity stretches to it," and leading her down the aisle, past the rope, past the bored privates who straightened for the Sister and not at all for the lady, to the corner cot by the shuttered window, where a long grey-faced man with a ruined hip lay propped like a fence rail somebody meant to fix later, watching them come with the driest, most alive eyes in the whole church.
-
-"Well, now," said Paudeen Slattery, in a voice like a creek in August. "Himself said he'd send me a letter-writer." The eyes went over her, missing nothing, coming to rest with vast approval. "He never said the letters'd have green eyes. Sit down easy, missus, and we'll write me mammy in Tuam a pack of lies so beautiful they'll keep her alive another ten year."
-
-The Sister set the little writing-board across Katie's knees, arranging it with those steady, steady hands — and, bent close in the arranging, not above a breath, not looking at her at all, she said:
-
-"I am glad you came, Katherine."
+"Your hair's still up," he said. "It's been up the whole of the day, and the day's over now, I'd say. The day's well over." His hand turned palm-up on his knee, the asking gesture, the same one from the singing. "Will you let me take it down? I'll go slow. I've a great respect for pins."
 
 ---
 

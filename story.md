@@ -1121,6 +1121,32 @@ He listened the whole way through with his eyes shut, nodding along to it like a
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> "Wouldn't you like to know." I say, smirking, stand up, collect my basket, and saunter off, carrying the stack of letters in the crook of my arm as I go in search of the priest.
+
+---
+
+"Wouldn't I *just*," he agreed to her back, with enormous satisfaction, and pitched his voice to follow her down the aisle — soft enough for the guards to ignore, clear enough to arrive. "And there's me answer anyway, missus — a woman that won't say is a woman that's already thought about the dress. *Soon*, so. Mind the stitch tonight." A beat, and then, quieter, in a different coin altogether: "And missus. Thank you for the rain."
+
+She sauntered on, and behind her she heard the last of him settle back into the bolster like a man banking a fire: "Send himself to the shutter tonight. I'm owed the abuse."
+
+The ward went by her in its rows. Halfway up the aisle her eyes crossed a grey wimple — one moment, over a basin — and it was the Sister who looked away first, down into the water, like a woman finding something there that needed all her attention. The murmur stayed where it had been left. Neither of them touched it.
+
+She found the priest in the sacristy doorway, and he was eating.
+
+That was the whole first impression: an old man in a cassock gone green-black at the seams, standing up, eating a heel of bread over his own cupped hand with the guilty economy of a man stealing from himself — the first food, by the look of the taking, since some earlier day. Father Malachy Doran was sixty and looked it from the far side: Ulster in the voice and grey in the stubble, which was three days old because razors take minutes and boys keep only seconds; a purple stole crumpled in his pocket the way other men carry handkerchiefs; and about him the smell of the season — chrism, carbolic, and candle — the smell of a man who had anointed his way through three regiments' worth of last words and was still, visibly, standing.
+
+He saw her coming, took in the cream, the basket, the Bible, and the letters in the crook of her arm, and finished his crust unhurried — a man past apologizing to anyone for eating.
+
+"The letter-writing lady," he said. Gravel and Tyrone. "The Sisters mentioned there was one. God reward you — half those boys wouldn't have sent word home till the stone did it for them." He put out a hand for the stack, and sorted through them on the spot with the speed of a postmaster, which by wartime necessity he was: "Ohio — the post. Maine — the post. And — " he came to the one signed in a scrawl like a falling fence, and his eye went down it, unembarrassed, official; the censor's habit already grown in, " — the Tiger. That goes in the flag-of-truce pouch Tuesday, through the lines at City Point, and God speed it slower than the war ends." He squared the stack against his chest.
+
+And then he looked at her — properly, the way tired priests and dealing men look, straight through the cream to the woman — and his eye ticked once to the little bright twist of pin-metal on her finger, and back up, and one grey eyebrow made the smallest movement in Adams County.
+
+"And is that the whole of your errand, child?" said Father Doran. "For you've the look of a woman carrying a second one."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

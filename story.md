@@ -301,6 +301,48 @@ And he stood, and this time he did not offer her the arm with its fair-day cerem
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> "I know what that word means, Martín. You should take more care with your heart if you don't want it to stop on you before its time." I meet his eyes, steady, somber, then lead him up the staircase to my room.
+
+---
+
+*Martín*, she'd said — with the length in the *i*, where it belongs. Two years in the army and no man in it had ever once got his name right; she'd done it on the first try, by way of Clare and Milan, and he went up the stairs behind her carrying that small thing as carefully as the candle.
+
+Her light threw the two of them huge and wavering up the stairwell wall. At her shoulder, quiet, he answered the easy half of it first, because he was who he was:
+
+"You're the second one tonight has cautioned me against a piece of meself. Herself below warned you off me trade. You've warned me off me own eyes and now me own heart. I'll be confiscated entirely by mornin' — they'll ship me to the provost in pieces, labeled."
+
+But at the top, on the landing, before her door, he stopped, and gave her the true half.
+
+"Katie. My heart stopped on you're-sayin'-it already. The thirteenth of December last, at Marye's Heights, along with near everything else that was in that field. Whatever's been beatin' in me since is borrowed — borrowed off the fellas that didn't get up, and borrowed money's easy spent; I've been payin' it out careless ever since, and I know it, and you've seen it, for you see everything, you and your sharp eye." He held her look, steady for steady. "So I'll not promise care. Care's for things a man expects to keep, and my people never expected to keep anything but the road. But I'll promise you this instead, and it's a better article: the truth of whatever I spend. And I never once in my life said *a stór* by accident." A breath; the wit came back through, soft, the valve easing. "Besides — nothin' of mine ever yet died at its proper time. We're a terrible unpunctual people."
+
+Her room was small and clean under the slope of the roof: whitewash, an iron bed, a washstand, a window that looked down on the black garden. At the threshold he paused — one flick of the eyes to the window, the sill, the drop below; the old road-instinct, *where's the second way out*, done before he knew he was doing it — and then he caught himself at it and huffed a laugh at himself and let it go, which for a tinker is an act of enormous trust.
+
+He unwound the rosary from his wrist and hung it on the bedpost, and turned the crucifix, gently, to face the wall.
+
+"No offense meant," he told it. "But you've seen enough this fortnight."
+
+Then the candle went out.
+
+And what the night held then was theirs, and no one else's — not the town's, not the army's, not this page's. Outside, the patrol's lantern went up Baltimore Street and turned at the square. The shuttered houses breathed their camphor and their peppermint. South along the ridges the trenches lay quiet under the young moon, five hundred men in them who knew, every one, exactly what county they were in and what road they were near, because a tinker had leaned down and told them. The smoke off the horse-pyres stood thin and far against the stars, and one window in a tall brick house went dark like a coin going into silk, and the town of Gettysburg, for a few hours, was only a town, asleep.
+
+---
+
+The birds had come back. That was the first thing he knew in the grey of it — for a fortnight after the guns the fields had been silent as held breath, and now, this morning, somewhere over the garden, a thrush was going through its whole inventory like a peddler laying out ribbons.
+
+He lay still. First light through the thin curtain; the slope of the ceiling; the weight of her against his right side, her dark hair across his arm — the good arm, gone dead asleep under her an hour since, and he had elected to lose the arm sooner than move it. Reveille would sound down at the field camps before long, and Hornbeck's wagon would want him at the trenches by six, and none of that had any purchase on him whatever, in this one borrowed hour, in the first bed he'd slept in since Boston, with a living heartbeat at his ribs and a thrush doing commerce out the window.
+
+*I'm after wakin' happy,* he thought, with the caution of a man identifying an unfamiliar bird. *Well, God. There's a thing.*
+
+Which was, of course, when the knocking began.
+
+Not at her door — below. The front of the house. A fist, official, unhurried, the knock of a man who knows the door must open for him eventually and is content to let the whole street hear why. Then boards creaking in the hall, quick; and Het's voice through the door panel, pitched to wake Katie and no one else, and stripped of every one of its silks:
+
+"Katie. Up, now. Quinn's on my porch with paper in his hand — and it's not the house he's askin' for. It's you. By your name."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

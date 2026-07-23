@@ -1003,6 +1003,38 @@ He drank. Not greedy — a wharf-man's pull, measured, respectful of another par
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> I put down the basket and pick up the paper and the pen. "Keep the thermos. We've a store of it under the floorboards at home. The Irish love women and all fancy themselves poets and romantics in the small hours." I grin. "Out with it then. What else do you want written."
+
+---
+
+"Keep it," he repeated, and looked at the flask in his hand a moment — a man being handed a piece of home by a woman he'd known an hour — and then dealt with the size of that the only way his breed knew how: "Under the *floorboards*. Of course it is. The entire savings of the Irish nation is under floorboards, missus; the banks never got a fair start with us." He stowed the flask under the edge of the bolster with a smuggler's economy of motion, and one line of it slipped out sideways anyway, quiet, before he could dress it: "I'll will it back to you filled." Then, briskly, before that could sit in the air: "And *fancy* themselves poets — there's no fancyin' in it. It's a national affliction, like the rain. Now. The rest of the cargo. A mother needs three things more, and then the hardest line of all.
+
+"First, me soul. Write: *The Sisters here mind my soul as well as my leg, Mother, and there is Mass in this very building of a Sunday, so you may stop lightin' the whole rack of candles and light just the one.*" The corner of his mouth moved. "She'll light the rack anyway. But she'll enjoy bein' told.
+
+"Second, the neighbors — for a letter in Tuam is a public document, missus; the whole street'll have it read to them twice. Write: *Tell Mrs. Feeney beyond the bridge that her Michael is here alongside me and doing grand.*"
+
+The pen stopped. Katie looked at him. And Slattery looked back, level, the amber gone still, and answered the question she hadn't asked.
+
+"He's under the hill out there. Third of July." A beat. "His mammy and mine takes tea every Tuesday of their lives. The lists'll reach Tuam by the autumn — let the two of them have the summer first. When the truth comes, mine'll go sit with her." The voice didn't move at all. "Write it, missus. It's the kindest sentence in the letter."
+
+He waited while the pen did it, watching the ink go down like a man watching earth go onto a box.
+
+"Now the last. And this one's a trade with two customers, so mind the craft of it." He drew a slow breath, aligning the words. "If I mend, it's an ordinary line and she thinks nothin'. If I don't — " the flat blanket, the wrong hip, the surgeons' smile, none of it arrived in his voice, " — then it's the other thing, and she'll read it at the graveside of me for the rest of her days, so it has to stand the weight. Write:
+
+"*Do not be fretting for me, Mother. I was ever the lucky one of this family — ask anybody. Mind the geese, kiss my sisters for me, and if I am slow writing again it is only that the roads here is long. Your loving son, Paudeen.*"
+
+The ward went on around them — the weather-steady crying, the water going in basins, the grey Sisters moving — and he lay listening to her pen close the letter out, and when it was done he did a thing that cost him visibly more than the wave of pain had: he made her hand him the pen and the board, and propped himself up on one shaking wharf-hand arm, and at the foot of the page, in a scrawl like a fence falling over, he signed his own name. Then he lay back, spent as a race-run horse, breathing careful.
+
+"She'd know me hand," he said, when he could. "A signature's a fingerprint, missus. The whole letter in yours and the name in mine — that's how she'll know the both things: that I couldn't write it, and that I *was there*. Fold it now. It goes to the priest, for the exchange mails — Father'll take it Tuesday with the rest; the censor reads it and finds a leg wound and some geese, and God speed it to Tuam by October."
+
+She sanded it, folded it, and he watched his own heart go into a stranger's basket, under a Bible, next to an apple — and let it go with one long breath through his nose.
+
+"Good," he said softly. "Good. Now." The amber came up off the basket and fixed on her, and every degree of drollery went out of it, and what was left was the man who had crossed a battlefield at dusk with a rammer in his hands. "Put down the pen entire, missus. Fold your hands in your lap like we're discussin' the weather or me soul. And listen the way himself says you can listen — for what I'm about to give you goes nowhere *near* paper, and it gets said the once."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

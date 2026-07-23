@@ -513,6 +513,30 @@ He let that sit in the candlelight between the three of them.
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> I sit there, spinning a coin on the table. "The Sister. She must have checked the Catholic church's registry. Found my name. Wondered why a good Catholic woman would fall to her knees as whore before she'd marry a decent Catholic man. The truth is, there are no decent Catholic men, and I'd ask the same of her, how she ended up in a habit with a miserable sneer on her gob." I look up at Mairtín. "She's probably sucked off half the clergy in the bell tower herself. Men of the cloth are no different. Most of them suck each other off, or they prey on the young and innocent, but a few of them still have taste for women, too, even ones as ugly and petty as her." I lay my palm over the coin, flattening it to the table. "Heads or tails, Mairtín?"
+
+---
+
+It takes a great deal to shock a man raised on fairgrounds and reared in an army, and her tour of the bell towers of the church did not come near the required sum. He heard it out with his chin on his fist, and when it was done he said, mildly:
+
+"I'd pay a dollar I don't have to watch you say the whole of that to her face. Sellin' tickets, I'd clear me back wages." Then he tilted his head. "Though I'll flag the one place you're dealin' blind, for that's my job at this table. *A sneer on her gob* — you've never seen her gob, a stór. And she hasn't a sneer. I wish to God she had. A sneer you can fight. What she has is the face of a woman who'd take the beatin' *for* you and thank the man after, and there's no arguin' with that face, only losin' slower."
+
+He straightened up, and turned his own glass once, and gave her the rest of it straight.
+
+"Now. The cloth. I'll not sell you the whole bolt of it — I've met the wolves in it same as you; there's men wearin' collars I'd not leave minding a dog. My people's been thrun out of more parishes than we ever camped in, and the priest at the gate with his stick, times, while his housekeeper wore a fur. So you'll get no sermon off me." He looked at the candle a moment. "But I'll enter the one item on the other page, for the ledger's the ledger. Second of July, in the wheat out there. The shells was already comin' over when a priest of ours — Corby, a Holy Cross man — climbed up on a boulder in front of the brigade, and the whole regiment of us went down on our knees in the trampled wheat, and he raised his hand and gave us the general absolution, the words over five hundred men at once, with the air comin' apart above him. He could've been a mile back with the wagons. He stood on the rock." A beat. "And d'ye know the threat he made us, the one condition on the mercy? That the Church'd refuse Christian burial to any man that turned his back. *Burial*, Katie. Of all the treasure in the world, that was the one coin left with any weight in that field — and your grandda could've told him so." He spread his hands. "So there's my dealin' on the clergy, and it's the same as on horses, whores, tinkers, and sergeants: most is wind-broke, some is vicious, and the odd one will carry you through fire. You price the animal, never the breed.
+
+"As for your registry." He nodded, slow, giving it its due. "It's a fair theory, and it'd account for the name — Katherines is registry creatures, right enough. But it don't account for the bandage. Registries don't put a shake in hands that's held down screamin' men. And she asked was Katherine *well*, Katie — you don't ask after the health of a line of ink. So I'll offer you the version that fits all the facts and costs you nothing: you've never seen that woman in your life — and she's seen you. Nuns is furniture to the world; nobody minds what a wardrobe overhears. She could've stood behind you in a Baltimore market six year ago and you'd no cause to mark her — and she never once forgot you. That's not knowin' *back*, and it's not your debt. But it'd explain the whole of it." He shrugged. "Either road, she'll keep a day. Slattery won't — the talk is they ship the walkin' Rebs to Fort Delaware inside the week, and his answer travels with him.
+
+"And now." His eyes went down to her hand, flat on the wood, and the coin under it, and all the tiredness went out of his face and left the fairground.
+
+"*Heads or tails*, she says. Katie O'Shea, I was callin' coins before I could carry water, so mind me now: rule the first of every fair in Ireland — when the coin's already under the other dealer's palm, you're not gamblin'. You're askin' *permission*. That toss was over before you asked me." He leaned in, and the candle had both their faces now. "So I'll not call it blind, but I'll tell you what I know about the money itself, and you can do the arithmetic. The tails side of every coin ever struck is a *country*, a stór. A harp at home. An eagle here. And the heads side is a face. And my people settled the question generations back: never bet the country. The country never once paid a tinker out." He sat back. "So it's heads. It's always heads, with a Ward. Whatever you've laid on heads under that hand — the letter, the nun, the fight, the road — I'm for the face.
+
+"Lift your palm when you're ready. I'll be here past reveille."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

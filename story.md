@@ -537,6 +537,40 @@ He straightened up, and turned his own glass once, and gave her the rest of it s
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> "It's heads. It's always heads, Maitín. Heads roll, countries rock." I lift my hand. The coin is heads up. I toss it over to him. It's a double headed minted coin from Ireland. "It was my father's. He was mad about collecting them. I never saw the point, but I kept that one, because it was odd." I look up at him. "So the Sister wants to save a whore's soul by kicking her out of the only home she has left. You know what nuns do to women like me in the convents? They brutalize them, torture them until they become domesticated sheep just like Sister what's her fuck. I'd die in there before I'd bend to the will of a god in the shape of a man." I stand up, pace the floor. "But I'll go and write the letters for your friend. My father was a school teacher. He taught immigrants how to speak and write in English with an elegant hand."
+
+---
+
+He caught the coin out of the air left-handed — the bad arm, and neither of them remarked it — and held it to the candle, and turned it, and turned it again, and his face went through delight into something close to religious awe.
+
+"Two heads." He said it the way other men say *twins*. "An Irish coin with two faces and no country on it at all." He looked up at her over the top of it. "Katie. This is the most *tinker* object I have ever held in the length of my life. A coin that cannot lose, that pays no eagle and no harp, that backs the face both ways — my grandda spent forty years at the fairs tryin' to *breed* these." He laughed, short and real. "And I stand by me call, mind. I have never in me life been so right, on such crooked evidence. That's the family motto, if we'd a family crest."
+
+Then he leaned across the table and set it back down by her hand, gently, face up — whichever face that was.
+
+"And I'll not pocket another man's luck. A schoolmaster that collected the odd coins and taught the greenhorns their letters in an elegant hand — " he shook his head slow, " — you kept the odd one. Of course you did. He's all through you, that man, same as the undertaker: the eye off the one, the hand off the other. You're a well-made thing, Katie O'Shea, whoever done the assembling."
+
+He let her pace. He watched her the way you watch weather. And when he answered the convent, all the fairground was gone out of his voice.
+
+"I'll not argue that fear away, for it's not a fear. It's a fact you're rememberin' forward. I've seen the walls in Galway city meself — the Magdalen house on Forster Street, and the washin' hung inside the yard of it like the flags of no country, and the girls went in that gate and the gate was the last of them. Travellin' women too. Especial travellin' women. My mother crossed the street from that wall her whole life, and blessed herself passin', and it wasn't reverence." He put both hands flat on the table. "So hear the two things I have to say to it, and then I'm done.
+
+"The first is strategy, for your fear's after teachin' me a thing I hadn't seen. The paper says *conveyance beyond the lines* — the same road for the whole house. But if it's a Sister's letter pinned to the front of it, then for you, particular, there's somewhere they *mean* you to go. Rescue has an address, Katie. Always. Somewhere on the far side of the provost's desk there's a letter with a destination in it — an asylum, a refuge, a house of the Good Shepherd, whatever kind name they've hung on the gate — and I want that address read before the three days is up, for it tells us what we're fightin' and who signed for you like a parcel. That paper's in the provost's office, pinned to its fellows by a drownded clerk." The grin flicked, brief and sharp as a knife shown and put away. "And offices is only fields with roofs on. I'll find a way into that harvest.
+
+"The second thing is mine, and then we'll speak of letters." He looked at her, level, and said it the way he'd told the dead their county. "No one is puttin' you inside a wall. If every other card goes against us — the paper stands, the town wins, the three days runs out — then the last card in the deck is the road, and the road is *mine*, a stór. My aunt Nan's camp winters outside Philadelphia; there's Wards and Coffeys and McDonaghs on every pike from here to Boston, and a woman can vanish onto the roads of America easier nor a coin into silk, and be in company the whole while, and no wall in it, ever. We don't play that card first — you'd be trading your house for the weather, and it's your house, and we'll fight for it. But you'll sleep tonight knowin' it's *in the deck*. Nobody bends. Nobody dies inside. There's a third choice, and I'm it."
+
+He let that stand exactly as long as it needed to, and then — because he was who he was — he tipped the scales back toward the living.
+
+"Now. The letters." The warmth came back up. "*Letters*, she says — plural — God help Tuam entirely, they're gettin' a novel. Here's the shape of it, so, for I turned it over all day like a coin meself. You go in daylight, bold as church — for the boldest thing in any town is a respectable woman doin' war work, and tomorrow that's what you are: paper, ink, a plain shawl, a basket with lint in it. Ladies write letters for the wounded in every hospital in this Union; the Sisters *encourage* it. You'll write for two or three of our own boys first — that's not cover, mind, that's mercy, them boys is starved for it — and then you'll come to the Tiger by the window, that they let no one wonder at because the Sisters tends both coats alike. And mark the law of it, for here's where the rope hides and here's how we dodge it: the letter to his mother goes *proper* — left with the priest for the exchange mails, read by the censor, legal as Sunday. Nothing wrote passes out of that church in your basket. What passes out is in your *head*, Katie — what he saw on the Chambersburg road, the officer's name, the column, every word of it memorized, for they can search a basket and they can't search a memory. You walk out with lint and an empty inkwell and Dinah Freeman's whole road home behind your eyes."
+
+He stood then, and took his cap off the chair, and at the edge of the candlelight he turned back, because the last card had to be shown even though it was a hard one.
+
+"And Katie — you'll have seen it already, with that eye of yours, but I'll say it so it's said. It's *her* church. Her ward, her rows, her linen. There's no writin' by that window but under the eye of Sister Marie-Agnès." He spread his hands, the dealer showing the table the whole of the trick. "The two doors was one door the entire time, a stór. They always is.
+
+"Now — " and the crooked grin came home to roost, and he nodded at the window and the black garden and the fence beyond it, " — I've a climb ahead of me, unless this house has further use for a criminal. I'm told he sings."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

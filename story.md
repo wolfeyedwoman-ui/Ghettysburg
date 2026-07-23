@@ -659,6 +659,34 @@ He did not pretend to misunderstand it. She'd asked after the arm the way you as
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> "Are you married, Mairtín?"
+
+---
+
+The question walked through him, and he let it walk; she was close enough against his chest to feel that there was no flinch in it anywhere — only a man taking a fair question into the back room and coming out with the true stock.
+
+"No," he said.
+
+And then, because *no* was too thin a coin to hand a woman who'd asked in that voice:
+
+"Near, once. I'll give you the whole of it; it's short. My people marries young, and marries *matched* — the mothers does the choosin', at the fairs and the wakes, and it's families weds families, Katie; the two young ones is only the knot. The rope is the families." His thumb moved once, slow, over her shoulder, an absent tide. "I was promised at twenty-one, in Boston. Winnie McDonagh. Our two crowds had camped together since Galway — I'd known her the way you know weather. It was a good match and I'd no complaint of it, and I'll not pretend it was a great love either, for we'd hardly spoke two hundred words — that wasn't the custom. The custom was the words come *after*. I was for the words comin' after." A small pause. "I think I'd have been good at them."
+
+The candle fluttered; the garden breathed in at the window.
+
+"Then the fever took me father, the winter of sixty. And me mother followed him inside the year — she'd no use for a world he wasn't dealin' horses in; she went after him the way you'd go after a man that walked out with your purse. Me brothers scattered — one west, one to sea. And the McDonaghs looked at what was left of the Wards — one sooblik with a tinsnips and no wagon, no crowd, no rope — and they done the sums the mothers is *paid* to do. A match is families, Katie. And there was no family left on my side of the deal. No malice in it. They dealt fair by their lights. I'd have dealt the same." He said that last steadily, and it had taken him some years, you could hear, to be able to.
+
+"So the next spring I drifted to New York, where the Irish was raisin' regiments — and I'll tell you the true reason I took the shillin', that I never told the recruiter nor anyone since. It wasn't Ireland, and it wasn't the Union, and it wasn't the bounty, though I took the bounty and ate for a month on it." The breath of a laugh, without much in it. "It was that an army is a crowd that lives in tents, Katie. Moves with the seasons. Sings at its fires. Knows its own and buries its own. I'd lost me people, and I went and joined the only tribe in America that was still recruitin'. The pay's worse nor tinsmithin' and the roads is worse nor Connacht, but a man wants a people. He'll take a poor copy sooner than none.
+
+"Winnie wed me second cousin Miley the followin' spring. I had it outside mass, off a woman that told it watchin' me face the whole while, the way you'd watch milk comin' to the boil. I stood it well enough to disappoint her." His chin came to rest, light, on the crown of Katie's head. "It healed the way the arm's healin'. Crooked, and grand, and it only hurts when it's paid attention.
+
+"So there's the state of me papers, a stór, the full inventory: no wife. No promise standin'. No lien on me anywhere in the world — savin' the one this arm took on tonight, from a woman with an iron bed and an elegant hand." He was quiet a moment, and the quiet wasn't waiting for anything; it was just room. Then, gently, with no angle in it at all:
+
+"Why d'ye ask?"
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

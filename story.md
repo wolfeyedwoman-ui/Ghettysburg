@@ -1063,6 +1063,28 @@ He turned his face half toward the shuttered window, and pitched his voice under
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> "You fought for the rebels but you don't hate black folks? I never hated black folks. They was always kinder than the white men who came to see me, and I've worked alongside black women before in brothels in other cities."
+
+---
+
+"No," he said. "I don't hate them. And now watch me refuse the medal you're about to strike me, missus, for I'd not wear it honest."
+
+He worked himself a half-inch up the bolster, and gave her the whole of it, plain, the way he'd given her the hip.
+
+"Why'd I wear the grey. Because the wharf wore it. Because when the recruiters come down our end of New Orleans in sixty-one, it was every man of my street in one line — the Slatterys and the Duffys and the whole hungry parish of us — and a fella that didn't join was a fella alone, and I'd been alone across one ocean already and hadn't the stomach for it twice. Because the wage was there, and the boots was there, and Louisiana was the first ground on God's earth that ever fed me full." The corner of his mouth moved, dry. "Himself told me through the shutter why he took the blue — he'd lost his people and the army was the only tribe recruitin'. Well. There's the entire war for you, missus, in two tinkers' reasons: the same tribe, dyed two colors. I never fired a shot *for* slavery in me life. And here's the part that shames worse: I never fired one against it either, nor thought on it more nor the weather.
+
+"That's the true answer, so mind it. Hate's not what carries the thing." He tapped the blanket, once, like sounding the words. "Hate's loud and it's rare and you can see it comin' up the road. *Not-mindin'* is what carries it. Armies is built of men not-mindin' — whole nations is. I hauled cargo six years alongside Black men, free ones and hired-out slaves both — shared rope, shared loads, shared me dinner, for the wharf don't care what color hauls it — and I'd have told you they was my workmates and half meant it, and I never once minded *where the hired ones went at night*. And I'll say the other shameful part too, since we're bein' Christians: half me own street feared the freed man'd underbid them at the scale-house, and there's Irishmen in New York this very week — you'll have seen the papers — doin' the divil's own errands on exactly that fear. My people, missus. Mine and himself's both. So no medals struck on this bed.
+
+"It took a girl with a rope on her wrist puttin' water to my mouth in the rain to make me *mind*." The amber held level. "That's late in a life, missus. I know to the day how late.
+
+"And your own account — the women you worked beside, kinder nor the men that climbed the stairs — I'd believe it without the swearin'." He nodded, slow. "Work sorts people truer than churches does. A rope gang or a bawdy house'll teach you in a season what a pulpit won't in a lifetime: who lifts when your end's slippin', and who lets it slip." He let one breath of quiet close it out, and then the salt came back up into the amber, deliberate as a man rolling his sleeves back down over honest scars.
+
+"Now, missus. You're stallin' most elegant, and I'm not so young as I was this mornin'." The dry corner climbed. "The three items and the girl. Say them back."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

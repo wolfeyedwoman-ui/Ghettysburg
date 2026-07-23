@@ -837,6 +837,38 @@ a reel. Whistled. Bright as minted silver, all the way up Baltimore Street.
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> She dresses head to toe in cream, in the most basic, feminine garments with no makeup to be seen, her long black wavy hair pinned back, body and face washed until it glows pink. She packs a lunch in a small wicker basket, finds an odd Bible in a drawer and tucks in with the wrapped lunch parcels, a thermos, and a fresh apple, and leaves through the front door.
+
+---
+
+The town did not know her.
+
+That was the first discovery of the morning, and she collected it nod by nod the whole length of Baltimore Street: a woman in plain cream with her hair pinned close and her face scrubbed to the pink, carrying a wicker basket with a Bible sitting on top of it like a bishop in a rowboat, is not *seen* — she is *assumed*. Shopkeepers taking down shutters wished her good morning. A farm wife hauling eggs gave her the small grave nod that respectable women pay each other like a toll. An officer stepped off the boardwalk to give her the inside of the walk and touched his hat brim doing it. Two streets from the house where half these men's sins kept their accounts, the town tipped its hat to her — because respectability is not a fact, it is a uniform, and she had put it on correctly.
+
+Outside the dry-goods store a boy of thirteen with a haversack of clinking treasure fell in beside her for half a block, hat off, patter running like a sewing machine — "Button, miss? Off a real dead Rebel, a *Louisiana* one, and I've a fuse-cap and a chunk of shell-iron, genuine, and for a lady I'd — " and then his eye hit the Bible and he re-holstered the entire inventory smooth as a card sharp. "Beg pardon, miss. Church business. God bless." And Tad Pfoutz peeled away toward likelier trade at the hotel, leaving her the freer by one blessing.
+
+St. Francis Xavier's stood in the morning sun with its doors thrown wide for the heat, and it announced itself to the nose before the eye: lime, carbolic, corruption, and candle wax, braided together into the one smell the whole town wore that summer. At the door a private of the guard peered into her basket, moved a wrapped parcel with one finger, saw the Bible, and became instantly and permanently uninterested — the book worked exactly the passport she'd packed it for. "Wounded's glad of visitors, ma'am," he said, and stood aside.
+
+Inside, under the painted saints, the church had been unmade and remade: pews shoved into rows of cots, the aisle a hospital street, the altar rail hung with drying linen, and everywhere the arithmetic of the battle three weeks stale — the bandaged sums, the subtracted limbs, a boy somewhere crying with the steadiness of weather. Down the far end, past a rope strung pillar to pillar, lay the corner the town pretended wasn't there: butternut and grey in their own rows, and two bored privates minding the rope with the vigilance of furniture.
+
+And across the ward, a grey wimple went still — one wimple, one moment, the way a bird goes still on a wire when something crosses the sun — and then bent back to its work, and did not look at her again. Which was itself a way of looking.
+
+The ward turned toward the cream dress like grass toward light. She was, Katie understood within ten steps, the first clean unhurt civilian thing some of these boys had seen since Pennsylvania started screaming, and the wanting in the rows was not the wanting she'd built a trade on — it was homesickness with her face temporarily on it. The work found her before she'd half looked for it. The first boy she wrote for was seventeen, eyes bandaged, dictating to his mother in Ohio at the pace of a man laying brick, and he asked her to write that he was *looking better*, and the pen wrote it, because the pen goes where it's told. The second was a Maine man who wanted his brother to have his boots and his girl to be told nothing at all, in a voice so flat and finished that the pen learned what small letters are asked to carry.
+
+She was sanding the Maine man's page when the grey water arrived beside her.
+
+Sister Marie-Agnès, close to: a plain-faced woman near her own age, lime-burned hands, and eyes that held no sneer — had never once held a sneer, which was so much worse — saying only, level as a dosage: "There is one more could use your pen, if your charity stretches past the rope." And she led her down the aisle, past the two privates — who straightened for the wimple and not at all for the lady — to the corner cot by the shuttered window, where a long grey-faced man with a ruined hip lay propped like a fence rail somebody meant to mend later, watching them come with the driest, most alive eyes in the building.
+
+"Well, now," said Paudeen Slattery, in a voice like a creek in August. "Himself said he'd be sendin' a letter-writer." The eyes went over her — the cream, the basket, the Bible riding shotgun — and lit with vast, unhurried amusement. "A Bible and no beads. You're deep under cover, missus. He never said the letters would have green eyes, either. Sit down easy now, and we'll write me mammy in Tuam a pack of lies so beautiful they'll keep her alive ten year."
+
+The Sister set the little writing-board across Katie's knees, arranging it with those steady, steady hands — and bent close in the arranging, not above a breath, not looking at her at all, she said:
+
+"I am glad you came, Katherine."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

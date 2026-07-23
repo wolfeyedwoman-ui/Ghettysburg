@@ -1085,6 +1085,24 @@ He worked himself a half-inch up the bolster, and gave her the whole of it, plai
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> I repeat him, his words exactly: "The guard was Jenkins' cavalry — Virginians; brigade done the gatherin' work all up this valley in June, everyone knew their trade. The officer commandin' that column — a captain, lean man, ginger beard gone grey at the jaw; I heard his own troopers call him — was Captain Pruitt. And the road: they was bound for the river at Williamsport, and then the Valley Pike south — Winchester, and beyond Winchester, Staunton. That's where such columns was walked, and that's where the sellin' happens or the claimin', God rot the difference. Jenkins. Pruitt. Williamsport, Winchester, Staunton."
+
+---
+
+Somewhere in the second sentence his eyebrows had started up, and by the finish they had nowhere left to go.
+
+She hadn't given him the *sense* of it. She'd given him the *thing* — every word in its own place, his turns of phrase, his God-rot-the-difference, the whole cargo handed back in his own voice out of her mouth, like a fiddler playing back a tune heard the once through a wall.
+
+"...Mother of God," said Slattery, quietly. "That's not memory, missus. That's *carryin'*." He shook his head, slow, with the particular reverence his people saved for exactly this. "D'ye know what you are? The women that kept Ireland's songs four hundred year in their heads while the harps was burnt — that's the trade you've got and never hung a sign for. He said you'd the head. He undersold you, and I'll tell him so through the shutter."
+
+The amber steadied, and one finger rose off the blanket.
+
+"But I said the three items *and the girl*, and you've given me the three items. The girl's the half your farrier will live on, missus — the half that's not intelligence at all, only heart. So." He settled back, watching her, patient as the pew he'd promised to admire from. "The blue kerchief. Word for word. Out with her."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

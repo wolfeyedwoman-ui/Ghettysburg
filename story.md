@@ -931,6 +931,28 @@ He waited for the scratch of her pen, listening to it like music.
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> I blush again, crack my knuckles on my right hand and reset the pen to the paper, write down the first few words, and continue listening.
+
+---
+
+"That's twice with the color, missus," he observed to the ceiling, mild as milk, not looking at her at all — which was its own kind of looking. "I'm keepin' the count down here on the blanket, where the surgeons can't get a book runnin' on it."
+
+But when her pen moved, the teasing went out of him and something else came in, because he'd propped himself the extra inch to watch the hand itself — and the hand was worth watching. The letters came off her nib even and upright and lovely, schooled but not tame, her father's copperplate with something of her own in the loops, and Slattery followed the line of it across the page the way other men watch a woman dance.
+
+"God look at that," he said softly. "Copperplate with a *swagger* on it. She'll frame this, d'ye know. She'll have it up on the wall between the Sacred Heart and the pope, and the neighbors in to view it like a hangin'." He cleared his throat. "Right. The hard part now. She'll have read the lists — Tuam reads the lists; the whole parish stands round the one newspaper like it's a fire. If I say nothin' of a wound she'll know the letter for a lie entire and burn it and put on black. So we give her a wound she can survive. Write:
+
+"*I must tell you I was hurt in the late great battle here, but I write to set your heart easy — it was in the leg only, and lightly, and the ball is out, and I am mending fast.*" His face didn't change while the flat wrong blanket lay over the hip that would never swivel right again; the voice held level as a spirit-bubble. "*I am in the care of the Sisters of Charity, who are Irishwomen the most of them, and very good to me.*" A beat. "There. Two lies, one truth, and the truth carryin' the pair of them like a mule. That's the proportion, missus — mark it for your own use. Any more truth nor that and the load tips."
+
+The pen scratched. He listened to it with his eyes shut, the amber banked to coals, and for a moment the whole long ruined length of him was nothing but a man being carried home syllable by syllable.
+
+"Now she'll want the place," he murmured. "The neighbors'll ask her *where is he*, and she'll want more nor a name off a map; she'll want somewhere to *put* me when she's prayin'. And here's where I run dry." The eyes opened, and found her, and there was no salt in them at all now — only the honest beggary of a man asking for what he genuinely could not supply himself. "I've seen Pennsylvania three ways, missus: at night, at a run, and from this floor. That's me whole acquaintance with the state. But you — you've walked it in daylight, with them eyes." He tipped his head at the parchment, at the waiting space below the last line, and the mouth came up at its corner, soft this once.
+
+"Deal me a Pennsylvania. Somewhere a mother could set a son down in her mind and not lie awake. What does it look like — outside?"
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

@@ -44,6 +44,30 @@ And he waited, cap in neither hand, to see which she'd offer him — the kindnes
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> I step forward, dragging hard on the hand-rolled cigarette between my fingers. "Lad, of course I know where you can get a drink. I'm a whore. What'd you think I was, a ghost?"
+
+---
+
+That got the laugh off him — a real one, quick and cracked, like it had been sitting near the surface these six days with nothing to do.
+
+"A ghost," he said. "Faith, missus, in this town that's an honest question. The dead has the majority hereabouts; the livin' is only squattin' till the deeds is sorted." He shook the last of the water off his hands. "And I'll tell you God's truth — I half wondered. You stood that still in the shadow there. The dead do watch, you know. I feel them at it all day, glokin' at me over the lip of the trench, seein' am I doin' it respectful. But they don't smoke." He nodded at the coal of her cigarette, glowing in the blue dark. "First mark in your favor."
+
+He took his jacket off the fence rail and shrugged into it, easy about the bad arm this time, and came toward the porch — stopping at the foot of the steps, which was a distance he seemed to choose with some care.
+
+"And you'll notice I never asked what you were. A man that's been called *tinker* in every county of two countries learns manners about the namin' of people. You said your word the way a fella throws the first stone at his own window — before the street can throw it for him. My people does the same trick. It hurts less, comin' from inside the house." He shrugged. "So you'll be whatever you tell me you are. I'll be askin' your name, not your trade — and the trade, when we come to it, I'll discuss with the courtesy my people gives any dealer at a fair. Which is the highest courtesy there is, for it's the only religion we all of us keep."
+
+He turned his palm up, showing the business plain, the way a horse-man shows an animal's teeth.
+
+"Now. The full state of me: two dollars, a thirst like a lime pit, and a provost sergeant — Quinn, the joy of the county — that do gloke at me like I'm a crime waitin' on its paperwork. His drum beats curfew at nine, and the army in its holiness has shut every taproom to soldiers besides, which is how a grown man comes to be beggin' drink off strangers at a pump. So wherever you're for takin' me — your kena or the divil's own — I'll follow quiet, walk soft past the guard, and stand you the first glass out of the two dollars." A beat. "*Kena* — a house. The auld talk again. It do come out of me strongest when I'm happy, and missus, God help me, this is the happiest I've been since I crossed into Pennsylvania."
+
+He put his cap on at last, crooked, and looked up at her through the smoke.
+
+"Now — what'll I call you? For *missus* won't carry us far past that gate."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

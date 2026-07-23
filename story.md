@@ -785,6 +785,30 @@ The candle was down to the blue at the bottom of the wick. He reached past her a
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> I settle down beside you, draping my arm across your chest. "It's kind of you to think of the others. Women in this trade mainly look out only for themselves. If we wind up a family, it's because it works for the time being. We don't hold each other accountable for anything other than what we have to trade, and how we use it to pay for our rent, food, and cloth. Hettie doesn't deserve to be run out though on account of me. So I'm offering to leave before the law men come down on the whole house." I kiss your cheek. "Love you, husband. Goodnight. I'll make a wicked wife. Hope you don't live to regret it, but I do hope you live a long, full life."
+
+---
+
+Her arm came across his chest and he laid the bandaged forearm over it, keeping it there, the way you'd weight a tent-flap against wind.
+
+He was quiet long enough that she might have thought sleep had him. Then, into the dark, unhurried, the voice down to embers:
+
+"Mm. Let the minutes show: the woman that swears her trade looks out for itself only — offered, inside the *same breath*, to hand her whole life over a wall to spare her landlady's roof." A slow shake of the head against the pillow. "You are a desperate poor witness in your own defense, a stór. That's the third time I've caught you at it. The stone at your own window, every time.
+
+"And the offer's refused — not for gallantry. For arithmetic, so listen. That paper come for the *house*, Katie. Your name was pinned to the front of it for a bow, but the parcel's addressed to the whole establishment — pull the pin out and the parcel ships regardless. Your leavin' saves Hettie nothing, spares Fanny nothing, and costs me a wife, and that's the worst trade I've heard since a fella in Boston give a sound mare for a rooster that told fortunes." A beat. "We beat it whole, or we've beat nothing. I said it by candle and I'll stand it in the dark. Sleep on that, and don't be leavin' anybody in your dreams either.
+
+"*Husband*, she says." His hand found hers on his chest, and his thumb found the little bright twist of the pin-ring, and stayed there. "A day early. I'll not correct you — it's the one debt I ever owed that I'm glad to carry till Sunday. And Katie." The last of his wakefulness gathered itself, so it would be said plain, the coin laid flat: "I love you. The way me people loves the road. No sense in it, no cure for it, and no man ever come back from it the same, nor wanted to.
+
+"As for *wicked* — " sleep was taking the edges of the words now, sanding them soft, " — I priced the wickedness the first night, off the ballad. Faults sung, sale blessed. There'll be no regrets on this side of the bed; I've checked the inventory twice. And for livin' long..." a breath that was half a laugh, nearly gone, "...I never much minded the length of the lease till this week. Now I'll haggle God for the full term, and He'd best come ready. I've an itinerary."
+
+The window stood two inches open on the ordinary night. Somewhere far south the trenches kept their long quiet, every man in them told his road; and in the dark of the little room the two-faced coin, the row of pins, and the ring that had been one of them stood their watch on the nightstand, and the last words went out on the border of sleep, barely a breath:
+
+"Goodnight, wife-early. Wake me before the thrush."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

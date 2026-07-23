@@ -687,6 +687,42 @@ The candle fluttered; the garden breathed in at the window.
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> "If you marry me, could I follow you? As a soldier's wife?" She hesitates. "Would you want to marry me, Mairtín?"
+
+---
+
+He went very still — not the flinching stillness; the other kind, the kind that had come over him when she sang. Then he took his arms from around her, and with two gentle hands at her shoulders he turned her to face him, because there were words a man said to the back of a head and words he didn't, and he knew the difference the way he knew weather.
+
+The candle had both their faces.
+
+"Yes," he said.
+
+No flourish on it. The plainest coin in his whole pocket, laid flat on the table first, so there'd be no mistaking what all the rest was wrapped around.
+
+"There's the answer with the varnish off: I want it like the roads wants spring. And I'll tell you when it started, for I marked the moment the way you'd mark a colt: it was the second verse of that filthy beautiful ballad of yours, when I understood I was sittin' across from the one dealer in America that sings the fault before the sale. A man doesn't recover off that, Katie. I never planned to." A breath. "And hear this too, for your eyes went sideways when you asked it: if it was only the paper drivin' you — if this was a woman buyin' a fence over a wall — I'd marry you anyway and thank the paper on me knees. I'd take you fleein' a fire and never once ask which fire. But *would you want*, you said, and you said it soft. Papers don't make a voice do that. I heard what I heard."
+
+Then he sat back a little, and the fairground came into him — but slow and grave, the high ceremony of it, the voice his grandfather must have used when the money was real.
+
+"Now. Me grandda's rule, and I'll not be married outside of it: *name the fault before the money moves, and the sale is blessed.* You done it singin'. Here's mine, the full defects of the animal, so you know what you're biddin' on." He counted on his fingers, unhurried. "A private's pay is thirteen dollars the month, when the paymaster remembers us, which is a thing he does the way the rain remembers Connacht — in floods and famines. The war holds a mortgage on the rest of me; you seen the Wheatfield's interest on this arm, and the next field might foreclose entire — you could be a widow inside a year, and I'll not varnish that either, for you've seen what widowhood's wearin' this summer. And after the war — if there's an after — I'm a tinsmith and a horse-man, Katie. The road, a wagon if we're rich, a bender tent if we're not. I'll maybe never put a roof on you that doesn't fold." He spread his hands. "Them's the faults. Named entire, before God and the candle. The law of the fairs says the sale can be blessed now — if the bidder still bids.
+
+"And to your first question — for you asked two, and a dealer answers both." The practical came quick and sure now; he'd been turning it over since before she finished asking, she could see that. "Yes. It can be done, and done *legal*. Every company carries laundresses on its rolls — on the strength, rationed and quartered, wives of the men, four to a company, and Company A's been short two since Falmouth. A soldier's wife on the rolls follows the regiment lawful as the colors themselves. I'll not pretty it — it's washtubs and lye and marchin', you'd be tradin' one trade of washin' the army for another — but it's *with*, Katie. It's the two of us in the one camp, and no provost in America with a word to say against it.
+
+"And now the sweetest arithmetic I've done since I learned to count." The grin broke through the gravity, sharp with delight. "That paper of Quinn's expels *Katherine O'Shea*, spinster, of notorious fame. Katie — there is no Mrs. Ward on any list in Adams County. A wedding doesn't fight the writ. A wedding makes the writ a letter addressed to nobody. And priests — priests is the one article this town has thicker nor flies just now, and the Church waives the banns for soldiers in wartime the way the army waives boots: necessity. It could be done inside your three days. It could be done *Sunday*." He steadied himself; the gravity came back. "We'll do it twice, mind, if you'll have it. Once for God and the law, with a priest and a register and your name wrote new. And once the road way, for my dead — over the budget, the tinsmith's bag; you jump it hand in hand, and that's the marriage me people'd count. My mother'd want the jump. And you'd want me mother wantin' it, trust me.
+
+"And I know the custom says families weds families, and there's neither of us has one — the fever took mine and the road took yours. So here's what I say to the custom." He looked at her, and the further-back thing was all the way forward now, steady as a lit window. "We'll not be two knots tyin' onto a rope, a stór. We'll be the start of one."
+
+Then, before anything else could be said, he reached past her to the nightstand — to the row of pins laid nose to tail beside her father's two-faced coin — and took one up, and his hands did the thing his hands were *for*: thumb and forefinger, three slow deliberate bends, the cold-work of a tinsmith who'd shaped finer wire in worse light, and in the time it takes to say a Hail Mary there was a small bright ring sitting in his palm. Rough. True. Made of her own pin.
+
+"First article I've smithed since Boston," he said, hoarse. "I'll forge you better in silver when the paymaster remembers me. But a dealin' family seals on the spot."
+
+He took her hand — the anchor grip, the singer's grip — and held the pin-ring at the gate of her finger, and asked it properly, with her full name, the way he'd enter it on the third decade of his beads:
+
+"Katie Katherine O'Shea — of Clare, and Milan, and Baltimore Street — will you marry me?"
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

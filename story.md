@@ -249,6 +249,58 @@ Then he opened his eyes, and gave her back her hand — laid it on the table bef
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> She does not move. Instead, she closes her eyes, lowers her chin, and sings, in the most beautiful, lilting, Irish way, but with American words:
+>
+> "As I was a-walking down by the lough
+> As I was a-walking one morning of late
+> Who should I spy but my own dear comrade
+> Wrapped up in flannel, so hard is his fate
+>
+> I boldly stepped up to, and kindly did ask him
+> Why are you wrapped in flannel so white?
+> My body is injured and sadly disordered
+> All by a young woman, my own heart's delight
+>
+> Oh had she but told me when she disordered me
+> Had she but told me of it at the time
+> I might have got salts or pills of white mercury
+> But now I'm cut down in the height of my prime
+>
+> Get six pretty maidens to carry my coffin
+> And six pretty maidens to bear up my pall
+> And give to each of them, bunches of roses
+> That they may not smell me as they go along."
+
+---
+
+Somewhere in the first verse he had lowered himself back into the chair without a sound — because that is not a song you stand about for like it's a reel; you sit down under it and let it rain.
+
+The house had gone so quiet you could hear the candle burning. On the landing the two pale shapes never stirred. Het stayed in the hall door one moment more — a woman hearing that particular ballad in her own house and understanding every line of it down to the cost in coin — and then her lamp turned away, and the light slid off the wall, and the kitchen belonged to the two of them.
+
+"Well," said Mairtín, very soft. "There's my answer. She sings."
+
+He looked at her a long moment across the candle, and there was no grin in him now at all — only attention, of the whole man.
+
+"I know that song, Katie. We've it on the roads — my uncle sang it *My Jewel, My Joy*, and this army has it in every camp from here to the Rappahannock with the regiment changed to suit the singer. The boy in the flannel. The salts and the white mercury." He nodded, slow. "The regiment keeps a joke about that cure — *a night with Venus, a lifetime with Mercury* — and they laugh it very different in the hospital tents at Falmouth, I'll tell you. I've walked past that ward. I'd not wish it on Quinn."
+
+He turned the empty glass once on the wood, and pushed it aside.
+
+"And I'll tell you what you're just after doin', for I don't believe you'd say it of yourself. That's *twice* tonight. At the pump you called yourself the word before the street could throw it, and now you've stood up in your own kitchen and sung the charge against your own trade — give the evidence, worn the flannel, and carried the coffin, all four parts in the one voice." He shook his head. "The first stone at your own window, again. You've a great arm for it, Katie O'Shea.
+
+"Now. My grandda Ward had the one rule at the fairs, and it was religion to him: *name the fault before the money moves, and the sale is blessed. Hide it, and the money's cursed in your pocket.* Fifty year of horses, and I never once — not once — heard tell of a dealer that *sang* the fault." He put his hand flat on the table, a man swearing on something. "You're the straightest dealer I ever crossed, and I've dealt with priests.
+
+"So here's my side of the table, straight as yours. I heard the song. I know its meanin' and I know your trade and I know mine, and whether that song was a mirror or only a lantern held up for my benefit — I'll not ask. It's not mine to ask, and you've dealt me fair either road." A breath, and the tiredness came into it, and the warmth. "For I'll tell you what I'm after realizin', sittin' in this kitchen. I come up your yard beggin' two things — a drink, and a livin' soul across the table. I've had the drink. And Katie — I've had the company. Better company nor any I've kept since I put on the blue coat. The song squared us an hour ago; all the rest of this night is profit.
+
+"So the bed's still owed, and I'm still collectin' — I'm a dealer's son, we always collect. But what's in it, you'll deal as you see fit, and I'll take the night as it's dealt me: a battle, or a bed, or only the first sleep in a fortnight with a livin' heartbeat near me instead of the other kind. Any of the three leaves me the richest criminal in Pennsylvania."
+
+And he stood, and this time he did not offer her the arm with its fair-day ceremony. He only put out his open hand, palm up, the same way he'd held it for the singing — the anchor's grip, offered back.
+
+"Lead on, a stór."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

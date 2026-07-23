@@ -953,6 +953,34 @@ The pen scratched. He listened to it with his eyes shut, the amber banked to coa
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> "Forests, rolling hills, fields of grain, pastures, horses, cows, pigs, sheep, farmsteads, taverns, churches, plank roads, coal mines, steel mills, lumber mills, railroads, deer, foxes, eagles." I smile. "Not unlike Ireland, by what I've heard, just vaster, inland, and the trees grow higher and the wildlife is strange. The weather is similar."
+
+---
+
+He listened to the inventory with his eyes closed and his mouth curling, like a man having a good hand read out to him.
+
+"Listen to her," he said. "She prices a *state* like a bill of lading. Forests, grain, four sorts of beast, taverns, churches — I spent six years on the New Orleans wharves, missus, and that's the finest manifest ever come across me. I could ship Pennsylvania to Galway tomorrow off that list and lose not a crate." The eyes opened, amber and working. "Now we'll edit for the customer. The mines and the mills is *out* — she'd only fret I'd take work in one and die respectable, which'd break her heart worse nor the war. And the eagles is out too." A beat, perfectly flat. "Her son was shot by that particular bird. We'll not put it in the scenery.
+
+"But the rest — and the last thing you said, that's the cargo entire. Write this."
+
+And she watched him do the thing he did: take her raw manifest into himself, turn it over once, and hand it back transformed —
+
+"*You would know this country, Mother. It is a green country, very like our own, only stretched bigger in every direction — the hills is the same shape God used at home, the trees grows taller, the birds is strangers to me. But the rain is the same rain.*"
+
+The pen scratched it down. When it stopped, he was quiet a moment, looking at the barred light.
+
+"There," he said, softer. "Between the pair of us, that's the truest lie in the whole — "
+
+It took him mid-word. She'd seen it coming half a second before it broke — the nurse-blood in her reading the grey arriving under the candle-wax skin — and then the wave went through the ruined hip and up the long frame, and his rope-scarred hands closed slow on the blanket, and the breath came out of him through his teeth in a thin, disciplined whistle, and for perhaps ten seconds Paudeen Slattery was nowhere in the church at all: just a body, riding it, sweat standing at the copper temples.
+
+Then he came back. Unclenched the hands finger by finger, like a man counting money he didn't trust. Blinked the ceiling into place.
+
+"...Where was I," he said, hoarse, and the corner of the mouth climbed back up its hill, slower than before. "The rain. We were doin' well on the rain."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

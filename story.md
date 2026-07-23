@@ -1147,6 +1147,26 @@ And then he looked at her — properly, the way tired priests and dealing men lo
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> "Father, how does one go about getting married in this rotten, foul-smelling place?"
+
+---
+
+"An accurate description," said Father Doran, without heat. "God forgive us both for agreeing on it."
+
+He brushed the crumbs from his cupped hand — carefully, into a pocket, a Famine habit fifty years old that had survived two archbishops — and then he looked at her a long moment, and something happened in the grey stubbled face that she had not budgeted for: it opened.
+
+"Child. Do you know what I have done in this town for three weeks." It wasn't a question, and the gravel in it had gone down to bedrock. "I have *finished* things. I've closed more eyes than I can hold the count of. I've anointed boys of both armies at the rate a man deals cards, I've written *deceased* till the word's lost its meaning, and I've said the same forty words over trench after trench till God Himself must be weary of my voice. Three weeks of nothing but endings — and here's a woman walks into my sacristy on a Saturday and asks me to *start* something." He pointed her at the bench along the vestment press with two fingers. "Sit down before I weep on you. It'd embarrass the both of us and scandalize the Sisters.
+
+"Now." She sat; he did not; he leaned against the doorframe and became entirely practical, the postmaster back in the priest. "How it's done. Rome would like the banns cried three Sundays running, and Rome is welcome to the wish — the army rarely lends me three Sundays, and I hold faculties for exactly this circumstance; I've married soldiers on a Tuesday with the drums already beating, and the sacrament held as fast as any cathedral's. So put the banns out of your mind. What I require is shorter, and I require all of it." He counted on worn fingers. "Two baptized Catholics, free to marry — no wife living, no husband living, and I'll ask the both of you plainly and take your word before God. Two witnesses with sense in their heads. And confession — the both of you, before it." The grey eyes did not soften and did not sharpen; they simply held. "That's not a toll, child, whatever face you're making. The sacrament wants a clean floor to stand on, that's all. I've heard three weeks of dying men's accounts; I assure you the living's are shorter than they fear.
+
+"And before you spend anything deciding whether to tell me what you think I don't know — " he said it mildly, sorting the letters square against his chest, not looking at her at all, which was its own courtesy, " — I have been this town's priest thirteen years. I keep the census in my head and the sins in the box, and I have never once confused the two. The sacrament of marriage is not a prize for the finished, child. It's provisions for the road." He let that stand exactly one beat. "I'd have thought, from the ring, your man would have told you as much. Tinker-made, that. His people know more about provisions than the rest of us have forgot.
+
+"So." He pushed off the doorframe, and the eyebrow resumed its small Ulster commerce. "The man's name, his regiment, his parish if he knows it — and the true answer, mind, to the only question that sets the date: *when does the army mean to take him from you?* Answer me those, and I'll tell you the day."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

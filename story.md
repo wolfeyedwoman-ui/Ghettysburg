@@ -1535,6 +1535,22 @@ Through the pierced stars: the shape of the old man, seated sideways in his vest
 
 And the pierced tin waited, patient as its own little constellations, for whatever she would give it.
 
+---
+
+*Her turn (the author, verbatim):*
+
+> "Forgive me Father for I have sinned. It was been... many years since my last confession. Since my confirmation I think, when I chose Joan, as in Joan of Arc, as my Saint's name."
+
+---
+
+There was a silence on the far side of the tin — not the disapproving kind; the *savoring* kind, the silence of a man turning something over in the light.
+
+"*Joan,*" said Father Doran at last. "As in *Arc*." And the gravel had a smile down in it somewhere, low as a seam of coal. "Child, do you know what you did, the day you chose that? The Maid of Orléans is no saint. Not then, not now — the Church that's had four hundred years to say sorry to that girl hasn't yet cleared its throat. Burned by churchmen, mind — by a court of *us* — and you, at twelve or whatever you were, smuggled her past your bishop under cover of some lawful Joanna and took for your patron the one woman in Christendom that half the calendar ought to stand and give their place to." The rustle of vestments; the grey head shaking slowly in the dark. "A girl that heard her own orders direct and wouldn't take the court's word over them, and answered her judges better than they asked, and was wronged by the very house she served — and it's my professional opinion, Katherine, delivered under the seal, that God's forgiven this Church many things but is still waitin' on us about *her*." A beat. "You've worn the name plainer than most wears their saints. I'll say that much and no more, or I'll be accused of flattery in the box, and there's canons against it.
+
+"Now. The years — many years, you say, and I heard the arithmetic startin' up in you. Put it away. The box keeps no sums; it keeps *weights*. And for the long-away there's an old mercy in the method, so we'll use it: I'll not ask you for the ledger entire — God's read the ledger, He reads it nightly, He needs no recitation off either of us. What I'll ask you for is the *weights*. The ones that wake you, child. The ones you'd not want carried up to that rail at four o'clock." The shape beyond the pierced stars settled lower, banked to burn as long as it took, and the voice came down to the floor of itself, kind as it ever got and twice as steady.
+
+"Set them down, Joan. One at a time. We've the whole of a Sunday, and the dyin' can hear a weddin's comin' — they'll keep for you."
+
 The reports, assembled afterward from six witnesses under Fanny's cross-examination, established the following record. Duration: longer than any confession in the observed history of the parish — "three rosaries, if I'd been saying them," per the girl detailed to time it. Audible incidents: laughter — the *priest's* — twice; once brief, once entirely helpless, a wheezing gravel-slide that went on some seconds and was followed by an authoritative thump, as of a fist brought down on a knee. And then, for a long middle stretch: nothing. A quiet so complete the congregation's forty boys could be heard breathing, a quiet with weight in it, the kind the house knew from doors it did not knock on. And then the murmur again, low and level, the box doing its oldest work.
 
 Father Doran came out with his face composed entire — not a blush on him, and Fanny paid out the stakes with heavy sighs — but the six witnesses agreed unanimously on the one detail: the old man stopped, mid-passage, and looked up at the roof of his church a long moment, the way a man checks that the beams have held through weather. And what he said, to nobody, to the roof, in the voice of a man closing a book he had enjoyed against every expectation, was:

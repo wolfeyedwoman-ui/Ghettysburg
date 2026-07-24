@@ -30,7 +30,7 @@ Thirty-five, free Black farrier and teamster of Long Lane, the town's Black dist
 
 ### 5. Corporal Dan Riordan
 Thirty, Cork man, the only other soldier of the 69th New York left behind in the town, one eye gone at the Wheatfield and a green patch over the hole. Faolan's messmate, older-brotherly, endlessly scheming small comforts. **Wants:** a surgeon's discharge home to his wife in the Five Points before the army invents a new use for him. **Secret:** he carries a dead lieutenant's gold watch that he was charged to send to the widow at Fredericksburg, seven months ago; he has written her three letters and posted none, and he cannot now explain the delay without looking like the thief he is halfway become. **Pushes plot by:** comic relief that turns grave; his schemes require Faolan, and his conscience requires witnesses.
-> "I'm not sayin' rob the embalmer, Sloan. I'm sayin' the embalmer is robbin' everyone else and we'd only be evenin' the arithmetic."
+> "I'm not sayin' rob the embalmer, Faolan. I'm sayin' the embalmer is robbin' everyone else and we'd only be evenin' the arithmetic."
 
 ### 6. Cyrus Weems
 Forty-five, embalmer out of Washington City, silk waistcoat, tent by the railroad depot with a painted sign: *THE DEAD PRESERVED AS IN LIFE.* Charges the grieving twenty-five dollars an officer, a hundred a colonel. **Wants:** named officers' bodies, which means diggers who can read a field, which means Faolan. **Secret:** when the paid-for man cannot be found, Weems embalms a stranger of the right size and ships the box sealed — he has done it four times, and the fourth went to a senator's cousin. **Pushes plot by:** dangling real money in front of poor men, and by the slow-fuse certainty that one of his boxes will someday be opened.

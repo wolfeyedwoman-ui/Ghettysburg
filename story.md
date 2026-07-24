@@ -28,7 +28,7 @@ He went still a moment. Then he reached for his shirt, unhurried, the way a man 
 
 He came a step nearer the porch, into the last of the light, and she could see him plain: young, and trying not to look it; a rosary wound twice about the wrist of his bad arm like a horse's hobble; eyes that had a laugh sitting ready in them and something else sitting behind the laugh, further back, that did not laugh at all.
 
-"Faolan Sloan," he said, and touched two fingers where his cap would be if he'd had the sense to wear it. "*Sloan*, the sergeant does call me, for Faolan has too much of the auld country in it for his taste. Sixty-Ninth New York. You'll have heard of us — sure everyone's heard of us, that's the trouble with bein' famous, they only remember the times you died." He nodded away south, toward the ridges. "There's forty of my regiment in the Wheatfield beyond, and I've the great luck to be the fella diggin', not the fella dug. Six days now I'm at it. Feens, the most of them no more nor sooblik's age — men, I mean, and half of them only boys — and no name on the one of them, only what's wrote in the seams of their pockets."
+"Faolan Sloan," he said, and touched two fingers where his cap would be if he'd had the sense to wear it. "*Fallon*, the sergeant does call me — 'tis as near as an American mouth comes at Faolan, and I quit correctin' the army the second week of me service. Sixty-Ninth New York. You'll have heard of us — sure everyone's heard of us, that's the trouble with bein' famous, they only remember the times you died." He nodded away south, toward the ridges. "There's forty of my regiment in the Wheatfield beyond, and I've the great luck to be the fella diggin', not the fella dug. Six days now I'm at it. Feens, the most of them no more nor sooblik's age — men, I mean, and half of them only boys — and no name on the one of them, only what's wrote in the seams of their pockets."
 
 He looked at his own hands, red from the lye, and turned them over as though they belonged to another man.
 
@@ -307,7 +307,7 @@ And he stood, and this time he did not offer her the arm with its fair-day cerem
 
 ---
 
-*Faolan*, she'd said — the true broad sound of it, the way it's said on the roads of Connacht, not the flat *Faylan* the army had made of him. Two years in the army and no man in it had ever once got his name right; she'd done it on the first try, by way of Clare and Milan, and he went up the stairs behind her carrying that small thing as carefully as the candle.
+*Faolan*, she'd said — the true broad sound of it, the way it's said on the roads of Connacht, not the flat *Fallon* the army had made of him. Two years in the army and no man in it had ever once got his name right; she'd done it on the first try, by way of Clare and Milan, and he went up the stairs behind her carrying that small thing as carefully as the candle.
 
 Her light threw the two of them huge and wavering up the stairwell wall. At her shoulder, quiet, he answered the easy half of it first, because he was who he was:
 
@@ -447,7 +447,7 @@ The sun came up the rest of the way and got to work on the county.
 
 South of town the trenches steamed. Faolan had made roll at the field camp by the skin of a prayer — in over the orchard wall as the line was forming, cap crooked, invisible by long practice — and by seven he was waist-deep in Pennsylvania with a shovel, and by eight he had what he wanted out of Dan Riordan, because Dan Riordan ran on gossip the way an engine runs on coal.
 
-"The committee ladies?" Riordan wiped his face with the green patch pushed up, which he did when the officers weren't by, on the principle that the empty socket earned him conversation. "Tuesday. Walked their petition up to the provost's door in a column of twos, Sloan, banners short of a band — herself in front, the Zeller one, with a face on her like a closed bank. Whole town seen it. A petition against the *houses*, they say. Now what's a petition, only a list with its Sunday clothes on?"
+"The committee ladies?" Riordan wiped his face with the green patch pushed up, which he did when the officers weren't by, on the principle that the empty socket earned him conversation. "Tuesday. Walked their petition up to the provost's door in a column of twos, Faolan, banners short of a band — herself in front, the Zeller one, with a face on her like a closed bank. Whole town seen it. A petition against the *houses*, they say. Now what's a petition, only a list with its Sunday clothes on?"
 
 "And who does the writin', inside the provost's?"
 
@@ -639,11 +639,11 @@ The pins lay in their row by the coin. The window stood two inches open on the o
 
 *Her turn (the author, verbatim):*
 
-> I exhale. Goosebumps form on my shoulders, my breath stutters. "Sloan, when will you be able to leave the arm?"
+> I exhale. Goosebumps form on my shoulders, my breath stutters. "Faolan, when will you be able to leave the arm?"
 
 ---
 
-*Sloan.* The sergeant's word for him, the small flat American coin of his name — and in her mouth, in the dark, it wasn't the sergeant's at all. Nobody had ever said it in a voice he'd have followed anywhere. He filed that away with the pins.
+*Faolan.* The name entire, in the dark. The army paid him out in *Fallon* — the flattened coin the sergeant's mouth could manage — and he answered to it the way you answer to weather. She never once reached for it. She spent the true name every time, like it cost her nothing, and nobody else in America had ever judged it worth the trouble. He filed that away with the pins.
 
 He felt the goosebumps come up under his breath, and the stutter in hers, and he did the animal arithmetic before the other kind: gathered the dark of her hair over one shoulder, out of the way, and brought his arms around her from behind — the good one and the bandaged one both, crossed loose over her collarbones — and drew her back against his chest, so that the question and its answer could at least be warm.
 
@@ -811,7 +811,7 @@ The window stood two inches open on the ordinary night. Somewhere far south the 
 
 *Her turn (the author, verbatim):*
 
-> I wake him with a hot cup of coffee. I'm sitting on the edge of the bed with two cups, with milk and sugar added to each. "Up and at 'em, Sloan boy. The bodies be rotting."
+> I wake him with a hot cup of coffee. I'm sitting on the edge of the bed with two cups, with milk and sugar added to each. "Up and at 'em, Faolan boy. The bodies be rotting."
 
 ---
 

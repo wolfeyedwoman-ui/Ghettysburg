@@ -1235,6 +1235,40 @@ Het set down her pen, folded her hands, and gave the day's one-word command.
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> I give her the full report.
+
+---
+
+She gave it the way she'd learned a report is given — in Het's own office style, items in order, no varnish: the ward and the letters. The Tiger, the flask, the letter to Tuam gone into the truce pouch for Tuesday. The priest — the banns waived, the questions counted, Sunday at four o'clock, a hospital for a chapel and forty broken boys for a congregation. The Sister named, and Doran's face when the name fitted; the word *Baltimore*, set down on the desk between them exactly as the priest had set it down; his claim on the questioning, and his promise of an answer before the altar; and the old man's Thursday soup with the provost marshal's adjutant, which Katie had recognized for artillery the moment it was offered.
+
+One parcel she did not open. "And there's a matter from the prisoners' ward," she said, "that's paid for, carried, and not mine to hand even to you. It goes to two men and no third soul."
+
+Het heard the whole of it without once touching her pen — and at the sealed parcel she looked at her lodger a long second, and something in the ledger-face moved that was almost pride. "Good," was all she said to that. "A woman that can carry a sealed parcel through my front door is worth double what I charge for her. Keep it sealed." She leaned back, and her eyes went up to the ceiling, to the house, to the whole groaning strategic map of the next three days, and she began — Het's version of joy — to *allocate*.
+
+"Sunday at four. Which gives this establishment thirty hours to produce a wedding, and the writ runs Tuesday, so mark the ledger plain, Katie, before we're all giddy: Sunday makes you a wife the paper can't touch. Tuesday the paper still owns this house and every other soul in it. We celebrate *and* we fight; the one's not leave from the other. Your tinker's due at dark with whatever he and the one-eyed corporal has lifted from the provost's paperwork, and the priest's soup goes in on Thursday — late, mind; two days past the writ, so somebody must stretch the writ or hurry the soup, and that's tomorrow's war. Tonight's is simpler." She drew a fresh line in the ledger, actual ink, and Katie saw the page header, written in Het's small tight hand, without one flicker of irony: *WARD — WEDDING — SUNDRIES.*
+
+"A dress. Witnesses — two, with sense, the priest says, which disqualifies most of the county. I'll stand one if the Church will have me at that rail, and God knows I've kept my face straight in worse buildings." A pause; the dryness went thin for half a second, like silk worn at the elbow. "I've not been inside a church since New Orleans, Katie. It'll survive me. So will I."
+
+Which was when the door, which had been ajar the width of an eavesdropping, burst its remaining inches, and Fanny — who had been passing, in the way that Fanny was always passing wherever information might fall — detonated into the office in full flight: "*Sunday?* SUNDAY — Katie — a *wedding*, a real one, with a priest and a — oh my *God* — " and the whole of her was joy, real as weather, flinging itself around Katie's neck — and for one half-second over Katie's shoulder, the joy did its other, smaller thing again, folded quick and put away like a letter into a bodice, and was gone under the shine before anyone but the sharpest eye in the house could have named it.
+
+Het watched the embrace with the patience of artillery, then redirected the ordnance.
+
+"Fanny. The dress. Take her measurements, raid every trunk on the second floor, and mind — " the finger came up, " — *church* plain, not house plain; there's a difference and you know it. Go." Fanny went, at speed, already calling up the stairs, and the house began to hum above them like a hive that had been shown a queen.
+
+Het looked back at Katie in the sudden quiet. Outside, the afternoon was going long and gold; the piano had given up; somewhere south the trenches were letting their diggers go with the light.
+
+"Eat something, then sleep an hour," said Madame Hettie Duquesne, general, mother of no one, in the voice she'd never once let the house hear. "You're no use to a wedding dead on your feet. I'll wake you when — "
+
+The garden fence, out back, made its particular sound.
+
+Boots, soft, in the yard.
+
+Het's eyebrow rose one measured degree. "— when your criminal arrives," she finished, "with the day's takings. Kitchen, the pair of you. I'll bring the bottle."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

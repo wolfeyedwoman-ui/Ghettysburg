@@ -1187,6 +1187,24 @@ Father Doran received the entire volley without moving anything but the eyebrow,
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> "Sister Marie-Agnés was who done it, and God help the man, Father, I'm not sure he quite knows what kind of creature he's marrying."
+
+---
+
+The name landed, and Father Doran stood with it a while — not surprised, she saw, which was itself information; a man checking a suspicion against a fact and finding they fitted, and taking no pleasure in the fit.
+
+"Marie-Agnès," he said at last, half to the vestment press. "Aye. Of course it would be her, if it was any of them." He looked back at Katie, and gave her what he could give — census, not box, the line held even now. "I'll tell you what's public of her, child, for you'll be wondering and you'll wonder wronger without it. She's a late vocation. A grown woman when she took the habit — five-and-twenty, maybe more — and she came to Emmitsburg *out of Baltimore*, where she'd nursed before ever she was a Sister. The almshouse and the fever wards, the years when nobody nursed such places but the desperate and the called, and God's own trouble telling those apart." The grey eyes held hers, level, letting the word *Baltimore* do whatever work it was going to do. "She's the steadiest pair of hands in my church and the one Sister of the twelve that's never once asked after her own comfort — and I've learned in forty years of collars to watch that kind closest of all. The ones that ask nothing for themselves, child, is the ones that'll do *anything* for somebody else. That's the good that goes desperate.
+
+"So. She's mine to question, and I'll question her this day — and you'll leave her to me." It was not a request; the iron came up through it, though it came up kind. "Not for her protection. For the ward's, and for yours — there's forty dying boys between the two of you, and whatever passed in Baltimore or didn't, it'll not be settled over their heads with the town watching. You'll have your answer before you're married. My word on it.
+
+"Now, the other matter." He came away from the doorframe, and stood square to her, an old man smelling of chrism and carbolic, and dismantled her last sentence with the unhurried thoroughness of a man who had heard three weeks of final accounts and knew self-slander when it walked into his sacristy dressed as wit. "*What kind of creature he's marrying.* Child, I've had the creature under my roof the whole of this morning. I watched her write a blind boy's lie to his mother tenderer than his own sisters would dare. I watched her take down a Maine man's will without flinching at the parts that would curdle a lawyer's clerk. I watched her cross my rope to a dying enemy of her country and sit with him the length of a morning treating him like a man instead of a specimen — and I'll add, for completeness, that the customs practices of my ward this morning included a flask which I have *officially* not smelled." The eyebrow did its smallest work yet. "Your tinker knows exactly what he's marrying, Katherine O'Shea. He's known it since whatever minute he decided. The only party in this sacristy that hasn't been properly introduced to the creature — " and the gravel went, briefly, all the way gentle, " — is you. I'd get acquainted before Sunday. She's a better woman than you've been telling yourself, and you'll be standing in her shoes at my altar.
+
+"Away with you now. Send me the groom tonight. Leave the Sister to me. And — " before she could gather basket and Bible and go, the old hand had come up, two fingers, quick as a pickpocket, the small cross cut in the air over her head and done before it could be ducked, " — there. Didn't hurt. Go on."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

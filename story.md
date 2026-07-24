@@ -1531,7 +1531,11 @@ Father Doran came out with his face composed entire — not a blush on him, and 
 
 "Shorter than she feared."
 
-Katie came out to light her penance — whatever it had been, it sent her to the Lady altar, where she lit not the rack but one candle, a single flame set down with the care of a woman placing a name — and it was there, rising from the little light, that she found the grey waiting for her.
+Katie came out of the curtained corner with her penance still to pay.
+
+*(The penance — what Father Doran laid on her, and how she paid it — is the author's to write, and sits here in the story's time.)*
+
+And when it was paid, however it was paid, she found the grey waiting for her.
 
 Sister Marie-Agnès stood in the side aisle with her hands folded and her face bare as winter, and she did not arrange linen, and she did not look away, and when she spoke it was low and straight through, a woman who had rehearsed this all night against a cell wall and meant to be done before her courage was.
 
@@ -1541,6 +1545,6 @@ Sister Marie-Agnès stood in the side aisle with her hands folded and her face b
 
 "So. Here is the whole of your answer, and the end of my business." From her sleeve she brought nothing — only her two lime-burned hands, open, empty, shown like an inventory. "The retraction went into Father's keeping this morning, in writing, signed as full as the sin was. The provision at Philadelphia is cancelled and the money's gone to the ward. There is no letter anymore, Katherine. There is only what it did, which I cannot call back, and I am not asking your pardon for it — I have no right to the *relief* of your pardon. I came only so you'd kneel at that rail knowing the truth of every hand that touched your name." 
 
-She looked, once, at the single candle burning at the Lady altar, and then at the bride in blue, and the last of it came out barely above the flame:
+She looked, once, at the Lady altar, and then at the bride in blue, and the last of it came out barely above a breath:
 
 "Margaret would have — " It stopped. The hands folded themselves away into the grey. "Be happy, Katherine. That's all. Be happy."

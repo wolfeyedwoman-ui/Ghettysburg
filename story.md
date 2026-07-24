@@ -1269,6 +1269,42 @@ Het's eyebrow rose one measured degree. "— when your criminal arrives," she fi
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> I go to the kitchen to find something to eat.
+
+---
+
+The kitchen at day's end kept a working house's larder: half a loaf under a cloth, a heel of cheese, cold ham from the girls' dinner, and the crock of dripping by the stove — and she was elbow-deep in the finding of it when the back door opened on Faolan Sloan, scrubbed pink to the elbows at the yard pump, trench-dust still in the seams of him, and holding, in one fist, like a man who had mugged a hedgerow: a great ragged handful of chicory and Queen Anne's lace, blue and white, roots and all.
+
+"The fields is after apologizin'," he said, by way of good evening, and set the hedge-bouquet in the water jug on the sill where it stood up outrageous and lovely, and then he looked at her properly — at the cream dress with the day worn into it, at the color still up in her face, at the pin-ring turned bright — and whatever he was carrying to the table went and stood behind his back a moment, because first things came first. He crossed the kitchen and kissed her, unhurried, one hand at the back of her dark head, the way a man kisses a woman he has thought about at intervals all day while standing waist-deep in the ground.
+
+Then he saw what she was assembling on the table, and took over the entire operation without asking.
+
+"Sit. Sit, sit — you've been at wars all day, I can smell the church off you." The skillet was on the stove and the dripping in it before she'd fairly sat. "Camp cookin' is the one dowry I bring to this marriage; you might as well have the inspectin' of it early." Ham to the pan, eggs after it, bread cut against his chest in thick tinker slices — a man cooking the way he did everything, quick and light and talking through it. "Eat first, deal after. That's fair-day law. No man ever got a good price hungry."
+
+Het arrived with the Monongahela and three glasses as the eggs came off the pan, took her seat at the head of the table by right of it being her table, and poured. And when Katie had food in her and the first of the whiskey was down, Faolan set his knife across his plate, and became a man at a fair.
+
+"Right. Takings." He glanced once at Het, and at Katie, and laid it out like cards. "You'll want to know how two diggers come to be readin' the provost's private paper. Hornbeck's tallies — the burial registers, the count of who's gone down where, they're wanted at the provost's office every Saturday, and Hornbeck would sooner send his diggers than climb off his own cart. So in we went, legal as collection day, me with the tallies and Dan with his conscience — and the clerk, Katie. God love the clerk. Drowned isn't the half of it. The man's got paper to the oxters, three weeks of passes and permits and dead men's inventories, and here's Corporal Riordan of the Sixty-Ninth, one eye and the manners of a curate, sayin' *sure we'll sort the pile while you stamp the tallies, it's no trouble.*" The grin flashed, sharp and brief. "We sorted the pile. Nothing lifted, nothing copied — your rule, a stór, the same rule you walked out of that church under: paper stays, memory travels. Dan and I has the whole of it between our two heads.
+
+"Item the first." He put one finger on the table, and the fair-day lightness went out of his voice. "The petition's real. The committee's — forty signatures, and the Zeller one first and largest, like a spire on a chapel. It names no woman particular. It prays the provost to *close the disorderly houses of the borough* — the houses, Het, the whole trade of them. That's the *and others*.
+
+"Item the second." A second finger. "Pinned to the front of it — pinned, like Dan said, for that office writes nothing it can fasten — a letter. One page. Convent copperplate, Sparrow called it right. Signed — " he looked at Katie, steady, giving it to her level because she'd want it level, " — *Sister Marie-Agnès, Daughter of Charity*. Signed full. No hidin' in it. And the letter doesn't pray for expulsion at all. It prays — I have the line by heart, for I read it three times while Dan whistled — it prays that *Katherine O'Shea be removed from her present situation and conveyed to the care of the House of the Good Shepherd in Philadelphia, where provision has been made*." He let that stand in the kitchen. "There's the address of your rescue, a stór. Philadelphia. A laundry with a kind name on the gate. *Where provision has been made* — she's arranged it already, paid it maybe. The whole cage, wrote in a fair hand, out of what I'd stake me arm is love.
+
+"And item the third — and this one's the blade, so hold your glasses." The third finger came down. "The clerk grumbled it to Dan free of charge, the way drowned men grumble. The order that come to this door — the writ, the three days, the *conveyance beyond the lines* — the captain never wrote it, and the captain never signed it. The clerk says it was *drafted in the office off the pile* — the petition and the letter stapled into a writ by a hand that had no authority to draft anything." He sat back. "Guess the hand, Het. Guess the hand that took a nun's mercy and a committee's spite and forged them into a three-day eviction with nobody's name at the bottom.
+
+"*Quinn.* The writ's a sergeant wearin' the captain's coat, and the captain doesn't know he's lent it." He turned his glass once on the wood, and the grin that came up now had no fun in it at all; it was the grin of a dealer who has found the hidden fault in the other man's horse at last. "Which means it can be broke — broke entire, for the whole house, not dodged — by any man that can put the question to the provost marshal's own table: *did you sign this?* And we know an old Ulsterman that dines at that very table Thursday. Or sooner, if the soup can be hurried."
+
+Het had not moved through the whole of it. Now she rose, went to her office, and came back with pen and paper, and set them at her own place like a third guest.
+
+"It's time I wrote a letter of my own," was all she said.
+
+Faolan looked from the madam to the bride, and spread his hands, and the tiredness and the triumph sat on him together like two birds on the one wire.
+
+"Them's my takings. Het says yours'd beggar them, and Het's never once been wrong about money." He filled her glass, and his eyes on her were the pump-yard eyes, the singing eyes, ready to be astonished. "Out with it, Mrs. Sloan-that's-promised. What did you do to this town today?"
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

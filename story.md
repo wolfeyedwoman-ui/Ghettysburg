@@ -1525,6 +1525,16 @@ The church had been made ready in the way of a place where forty men had nothing
 
 Then the confessional — a curtained corner of the sacristy passage, this being a church at war — and Katie went in, and the house settled into a pew to watch the curtain like a cockfight.
 
+Inside, the war had improvised even this: no carved oak box but a folding screen off the rectory landing, set across the corner of the sacristy passage, with a kneeler before it and, let into the screen at the height of a bowed head, a panel of pierced tin — some parish lantern sacrificed to the purpose, its punched-out stars and crosses now the grille through which the parish's sins passed in one direction and its mercy in the other. A tinker had made that panel once, somewhere, hammer and punch. She knelt in front of tinsmith's work.
+
+Through the pierced stars: the shape of the old man, seated sideways in his vestments, stole over his shoulders, grey head bowed toward the tin, close enough that she could hear the Sunday morning still in his breathing.
+
+"Well," said Father Doran, gravel lowered to the register the box kept for itself. "We'll spare each other the fiction of anonymity, child — there's the one bride in the building, and I've an ear does me fine." A dry rustle; him settling, the way a confessor settles, like a man banking himself to burn low and long. "You should know the terms of this country before you cross into it. What's said against that tin stays against it — not for the census, not for the committee, not for the provost, not for God's own provost if he calls. It goes in the box and the box goes in the ground with me. That's the whole law here, and it's the one law in Adams County nobody's ever broke.
+
+"So." The grey head bowed a degree lower, and all the tiredness of three weeks of endings came to rest, attentive, on her side of the stars. "In your own time, Katherine. Begin as you were taught — and if you weren't taught, or the teaching's rusted, begin anywhere at all. God's very good at middles."
+
+And the pierced tin waited, patient as its own little constellations, for whatever she would give it.
+
 The reports, assembled afterward from six witnesses under Fanny's cross-examination, established the following record. Duration: longer than any confession in the observed history of the parish — "three rosaries, if I'd been saying them," per the girl detailed to time it. Audible incidents: laughter — the *priest's* — twice; once brief, once entirely helpless, a wheezing gravel-slide that went on some seconds and was followed by an authoritative thump, as of a fist brought down on a knee. And then, for a long middle stretch: nothing. A quiet so complete the congregation's forty boys could be heard breathing, a quiet with weight in it, the kind the house knew from doors it did not knock on. And then the murmur again, low and level, the box doing its oldest work.
 
 Father Doran came out with his face composed entire — not a blush on him, and Fanny paid out the stakes with heavy sighs — but the six witnesses agreed unanimously on the one detail: the old man stopped, mid-passage, and looked up at the roof of his church a long moment, the way a man checks that the beams have held through weather. And what he said, to nobody, to the roof, in the voice of a man closing a book he had enjoyed against every expectation, was:

@@ -1382,3 +1382,25 @@ He came back toward the desk then — not close to her; he came around the *far*
 He straightened. Rebuttoned the one regulation button. Put the sergeant back on over the man, seam by seam.
 
 "So. You've walked into a military office at curfew, madam, knowing what you ought not know, to ask me questions you already had the answers to. That's not curiosity. In my experience of your establishment — " and the old contempt came back up, aimed at himself as much as her, which made it no kinder, " — everything has a price and the party names it plain. So name it. What is it you're here to sell me — your silence, or my ruin?" The flint held steady across the lamp. "State your price."
+
+---
+
+*Her turn (the author, verbatim):*
+
+> "No price. I just needed to hear you didn't write that letter with your own hand, but you still DELIVERED IT." And she's off, out the door, and back up the road, hugging her arms around herself.
+
+---
+
+Of all the answers she could have left him with, *no price* was the one his country had no procedure for.
+
+Sergeant Elias Quinn stood a long moment in the lamplight with the accusation where she'd driven it — *you still delivered it* — a charge with no defense on file, because it was simply true: the mercy had come to his desk in a fair hand, and his hand was the one that had folded it into a weapon and sent it up Baltimore Street with a drum. He went to the blind and tilted one slat and watched the cream dress go up the darkening Diamond, small and straight-backed and holding its own arms. He stood there past all reason. Then he sat down at the drowned desk, and drew out a fresh sheet, and dipped his pen — and what he wrote on it, and to whom, the lamp kept to itself.
+
+The curfew drum woke as she crossed the Diamond — the flat *tap-tap-tap* walking door to door behind her like a bailiff, the shutters closing ahead of it, the town folding itself up for the night — and she came down Baltimore Street through the last blue of the evening with her arms wrapped around herself, and nobody left abroad to tip a hat, and the cost of the office arriving now the way such costs always arrived: on the walk home, in the dark, with interest.
+
+He was at the gate.
+
+Not in the kitchen where he'd been ordered to wait — at the gate, which was as far as the letter of her law could be stretched by a man who had been pacing its boundary like a picketed horse for the better part of an hour; and he saw her come out of the dark with her arms around herself, and he read the whole shape of her in one look, the way he read weather, the way he read horses — and he asked her nothing at all.
+
+He opened the gate. He took off his jacket — the worn blue army sack coat, warm from him — and hung it around her shoulders the way he'd hung the shawl that first morning, not to make her decent, the town could still go to hell, but because the night was cold off the town and that was the whole of his reasoning, and it showed. And he gathered her in against his chest, arms and jacket and all, and stood there in the yard holding her with his chin on the crown of her head while the drum finished its rounds somewhere streets away and the thrush's garden went quiet and dark around them.
+
+"Whatever you spent," he said at last, very low, into her hair, "it's bought, and I'll not be askin' the figure till you're ready to deal it. There's a warm kitchen, a madam pretendin' she's not watchin' the window, and a fire I'm after buildin' up in the stove that'd shame a forge." A pause; the smallest breath of the grin arrived in his voice, gentle as it had ever come. "Come in home, Mrs. Sloan-that's-promised. The night's paid for."

@@ -1305,6 +1305,40 @@ Faolan looked from the madam to the bride, and spread his hands, and the tiredne
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> I eat the food, then set down my fork. "All of you, wait here. Do not follow me." And I go out the front door and down the road to find Quinn.
+
+---
+
+The fork went down like a gavel, and she was through the kitchen door before the sound of it finished.
+
+Faolan was on his feet with no memory of standing. Halfway to the door already — and Het's hand came down on his forearm, the bandaged one, flat and final as a lid.
+
+"Sit down, soldier."
+
+"Het — "
+
+"She said wait. She said it to your face, at your own table, three words, no varnish." The madam's grip did not move and neither did her voice. "And think, before you spend your legs. She's not walkin' to that man unarmed. She's walkin' to him carryin' every blade you just laid on my table — the petition, the letter, and a writ with no signature on it — and there is no soldier, no madam, and no priest in this county can put the question to Sergeant Elias Quinn the way that particular woman can put a question." A pause, one degree gentler. "You watched her answer a door once. Sit down and learn the first lesson of your marriage, Private Sloan: when that one says *wait here*, it's not fear talkin'. It's deployment."
+
+Faolan sat. It cost him about what the Wheatfield had. He took the rosary off his wrist, and Het, watching him start through the beads at a pace no rosary was ever built for, poured him two fingers and said nothing at all.
+
+Out in the town, the light was going down golden and long, and the cream dress went up Baltimore Street through it with the curfew drum half an hour from waking, and Gettysburg — still assuming her, still conspiring — tipped its evening hats. She crossed the Diamond, where the lamps were coming on in the shop windows one by one, and made for the only lit doorway that mattered: the provost office, brick and bars, with the flag furled for the evening and a single sentry on the step.
+
+The sentry was young. The sentry, in point of fact, was the boots-private — the one who had stood on Het's porch two mornings ago and examined his own feet down to the nail-heads while his sergeant strangled on a lintel — and he recognized her at forty feet, and the recognition went through him like grapeshot. By the time she reached the step, his neck was the color of undressed brick, his eyes had achieved the middle distance of a man reviewing his entire life, and his challenge — which regulations required — came out as a sound perhaps a bird makes. She went past him and through the door, and he did not stop her, on the grounds that there was no force on earth that could have made him touch her.
+
+The office inside was lamplight and paper: a low room with a rail, a drowned desk beyond it still groaning under its three weeks of war, and at the desk — jacket unbuttoned by exactly one regulation button, working late over a pile by a smoking lamp, alone — Sergeant Elias Quinn.
+
+He looked up at the sound of the door. He saw her.
+
+And she had the satisfaction of watching the whole of it cross his face in order: the recognition; the *memory* — the porch, the morning, the lintel — arriving like a man being shown the site of his own accident; the color starting up from his collar; and then all of it being seized, wrestled down, and buttoned under procedure, which was the country he lived in, though the border was visibly costing him troops.
+
+He set down his pen. He squared the paper in front of him with both hands, taking a moment over it that he plainly needed for other purposes. And when he spoke, his voice was gravel poured level — official, contemptuous, and wound one full turn too tight.
+
+"Madam. You are abroad within the half-hour of curfew, in a town under provost law, standing in a military office." His eyes were flint, and behind the flint, wariness — the wariness of a man who had faced this particular enemy once before, on ground of her choosing, and lost the engagement in under a minute. "You'll state your business. Briefly. And it had best be extraordinary."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

@@ -1446,3 +1446,33 @@ He went by the hand as he'd gone by the arm — willingly, and one step behind �
 The door closed.
 
 And what the last night of Katie O'Shea held was hers, and his, and nobody else's — not the town's, not the census's, not the box's, and none of this page's. On the nightstand the two-faced coin kept its double watch, and the row of pins lay nose to tail like money, and the rosary on the bedpost minded the wall as instructed. Downstairs, Het's lamp went out; across town, Quinn's burned on over paper; south along the ridges the trenches held their five hundred told and quiet dead; and in the small room under the slope of the roof, the candle — this once — was let burn all the way down.
+
+---
+
+*Her turn (the author, verbatim):*
+
+> She has the best sex of her life in that room, totally inhibited, and they both collapse with exhaustion and sleep through the dark night until morning.
+
+---
+
+What the room could have testified to, had rooms been called before committees, was only this: a candle burned to a silver puddle in its dish; a soldier's coat and a cream dress keeping company over the one chair; and two people so thoroughly spent that the night passed over them like water over stones — no dreams, no drums, no town — until the first grey came through the thin curtain and found them tangled and slack and breathing in step, the deepest either of them had slept since before their separate wars began.
+
+He woke first, out of long habit, and this time it was him with the vigil: propped on the mended arm in the half-light, studying her sleeping face with the unhurried attention of a man reading his own future off it. He let her sleep to the last possible minute. Then he woke her the smallest amount a woman can be woken — a kiss at the temple, a murmur pitched to reach her and no further: "Four o'clock, a stór. Sleep till the dress comes for you." And he was into his clothes and over the sill and gone down through the garden in the pearl-colored morning, and the last of him she heard was the gate, and then, faint and bright and scandalous on the sabbath quiet of Baltimore Street — the reel again, whistled, all the way to the corner.
+
+---
+
+Father Doran heard the groom's answers in the sacristy before early Mass, in his vestments with the alb over his arm, working even this into the machinery of a Sunday. The questions took two minutes: baptized — aye, Galway, the parish of Annaghdown as near as a travelling family belonged to any, his mother could have named the very font; free to marry — free entire, no promise standing, the McDonagh match dissolved these three years by an ocean of family arithmetic; coerced — and here Doran looked up from the register, and took his promised thirty seconds' look at the face across the rail, and what he saw there made the question administrative. "Aye," said the old man, to himself, and dipped his pen. "That'll do."
+
+For the register he wanted parents. And Faolan Sloan stood in a Pennsylvania sacristy and gave his dead their entry: *Father — Michael Sloan, tinsmith, of Galway, deceased. Mother — Máire Sloan, deceased.* Watched the old priest's careful hand set them down in a book that would outlive everyone in the building — his people, entered at last in somebody's permanent ink — and had to look at the vestment press a moment, and Doran, who had watched men look at things for three weeks, gave him the moment entire and blessed the pen while he waited.
+
+"One matter more," said Doran, closing the book. "I spoke with Sister Marie-Agnès last evening." The old face gave nothing — census discipline, box discipline, fifty years of keeping the two unconfused. "You'll have what I promised: the answer, before the rail, this day. It's not mine to hand you. It's hers, and she'll hand it." A beat. "Four o'clock, Private. Scrub past the elbow — I've smelled your trade at forty feet, and the Lord's asked to stand nearer."
+
+The shutter came last.
+
+"*Married,*" said the voice through the slats, dry as the whole month of August, when Faolan had leaned at the wall and made his report. "I send him a beoir to write the one letter — ONE letter — and he's *married* by Sunday. D'ye know how long it's been since I done anything that efficient? The army should give her the recruitin' contract; the war'd be over by Michaelmas." A pause, and then, with a pleasure so dry it crackled: "And in me *own ward*. You're jumpin' the broom in my parlor, sooblik — I'd not miss it if the leg come off entire. I'll have the best seat in the church and no choice about it." The voice dropped a register, and the salt went out of it, and for a moment it was just one road-man to another through a shutter: "*Misli go munya*, Faolan Sloan. Go well. She's the finest thing ever walked into this church that wasn't carried, and you know it, and I know it, and I'll say no more on the subject the length of me life." A beat. "Now get off me wall. Some of us has dyin' to do, and you're blockin' the light."
+
+And when the boots had gone, and the ward had settled, Patrick Slattery lay a long while looking at the barred sun on the ceiling. Then he drew the flask out from under the bolster's edge — her flask, the rain itself, willed back filled — and held it on his chest with both hands, and did not drink it. And what that was, he folded up small and put away, the way other people in this story folded things, and the ward heard nothing but a man resting.
+
+---
+
+At the house on Baltimore Street, the wedding morning came up the stairs with the sun: Fanny's feet first, then Fanny's knock, then Fanny entire — armored in pins, mouth full of thread, bearing over both arms something that had been three trunks, four opinions, and half the night in the making — and behind her the whole waking hive of the house, come to build a bride by four o'clock.

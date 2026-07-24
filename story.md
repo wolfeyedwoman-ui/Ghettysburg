@@ -1205,6 +1205,36 @@ The name landed, and Father Doran stood with it a while — not surprised, she s
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> "Bless you, Father, for I have sinned, too many times over to count, and still you wave to me with the sign of the cross and not a crucifix and a rosary with eyes set on an exorcism." I smile. "See you Sunday, Father." And I leave.
+
+---
+
+"Exorcism's for what's got *in*, child," the gravel followed her down the aisle, entirely unbothered. "You're after getting something *out*. Different rite altogether — we call it a wedding." And then, as the doors took her: "Sunday. Four o'clock. Eat something first — brides faint, and my church has no beds to spare."
+
+The afternoon had the town out in it. She came down High Street with the basket lighter by a stack of letters and heavier by everything else, and Gettysburg went on tipping its hat to the cream dress, still assuming her, conspiring with her respectability nod by nod.
+
+By the depot, the painted sign stood in the sun: **THE DEAD PRESERVED AS IN LIFE.** And in the mouth of the tent beneath it, silk waistcoat catching the light like a beetle's back, stood Cyrus Weems — who swept off his hat to her with the fluid economy of a man who bowed for a living, and whose small bright eyes performed, in one second, a valuation she recognized professionally: not the leer of the boardwalk, something colder and more actuarial, the pricing of a prospect. "Madam." The voice was Washington-smooth, poured over something. "Should you or yours ever suffer a loss — " a card had appeared in his fingers the way the priest's blessing had appeared, quick as a pickpocket, but from the other pocket of the world, " — Weems. By the depot. We restore what the war takes." She was three steps past him before the card stopped being offered, and his eyes followed the cream dress a moment too long — filing it, the way Het filed things, in a ledger she resolved on the spot never to appear in.
+
+---
+
+South of town, at the noon fire, Corporal Dan Riordan sat a little apart from the other diggers with a stick in his hand, and in the smoothed dirt at his feet, over and over, with his one eye narrowed to a jeweler's squint, he was writing the same three words in a looping clerk's flourish: *By order of. By order of. By order of.* Mairtín stood over him, arms folded, watching the dirt like a man watching a foal stand up.
+
+"God forgive us," said Riordan, not stopping.
+
+"He's busy," said Mairtín. "We'll leave word."
+
+---
+
+The house on Baltimore Street had its shutters open to the afternoon and its first thin Saturday trade at the parlor piano, and Het was where Het was always found at the turning hours of a day — in the office off the hall, ledger open, one ear on the house and one eye on the street, a general at her maps. She looked up when Katie came in. She took in the whole of it at a sweep, the way she'd taken in the porch two mornings ago: the lighter basket. The color still up in her face. The pin-ring turned once around the finger on the walk home, worried bright.
+
+Het set down her pen, folded her hands, and gave the day's one-word command.
+
+"*Well?*"
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

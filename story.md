@@ -639,7 +639,7 @@ The pins lay in their row by the coin. The window stood two inches open on the o
 
 *Her turn (the author, verbatim):*
 
-> I exhale. Goosebumps form on my shoulders, my breath stutters. "Faolan, when will you be able to leave the arm?"
+> I exhale. Goosebumps form on my shoulders, my breath stutters. "Faolan, when will you be able to leave the army?"
 
 ---
 
@@ -647,7 +647,7 @@ The pins lay in their row by the coin. The window stood two inches open on the o
 
 He felt the goosebumps come up under his breath, and the stutter in hers, and he did the animal arithmetic before the other kind: gathered the dark of her hair over one shoulder, out of the way, and brought his arms around her from behind — the good one and the bandaged one both, crossed loose over her collarbones — and drew her back against his chest, so that the question and its answer could at least be warm.
 
-He did not pretend to misunderstand it. She'd asked after the arm the way you ask after a lease.
+He did not pretend to misunderstand it. She'd asked after the army the way you ask after a lease.
 
 "You want the dealin' or the comfort first?" he said, low, against her hair. "I'll give you the dealin', for you'd smell the other. All right." A breath. "The truth of the arm is: the arm's near fit now. It dug nine hours today and it's holdin' you this minute. Any surgeon that looked at it honest would mark me for duty inside the week — and here's the part I've told no one: I've been *nursin'* it, Katie. Wearin' the sling for officers, wincin' on schedule, diggin' slow when Hornbeck's watchin'. Since before ever I saw you at the pump — this is no romance I'm confessin', it's plainer and worse. I'd no wish to go back to the war. December cured me of wishin'. I stretched a three-week arm into five like me grandda stretchin' a lame mare's rest, and I felt no shame, and I feel none now.
 

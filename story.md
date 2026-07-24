@@ -1476,3 +1476,35 @@ And when the boots had gone, and the ward had settled, Patrick Slattery lay a lo
 ---
 
 At the house on Baltimore Street, the wedding morning came up the stairs with the sun: Fanny's feet first, then Fanny's knock, then Fanny entire — armored in pins, mouth full of thread, bearing over both arms something that had been three trunks, four opinions, and half the night in the making — and behind her the whole waking hive of the house, come to build a bride by four o'clock.
+
+---
+
+*Her turn (the author, verbatim):*
+
+> I'm already up and scrubbed fresh. My hair is washed and has air-dried into perfectly oiled coils. I've put a touch of rouge on my lips and cheeks, just enough to look youthful, not enough to look like a whore. I've darkened the mole on my right cheek with the spent tip of a match, and darkened my lashes with it as well.
+
+---
+
+Fanny came through the door with the dress over both arms and a speech prepared, took one look, and suffered the particular grief of an artist who arrives to find the canvas has painted itself.
+
+"You — " The mouth full of thread worked. "You were supposed to let *me* — " And then the professional in her elbowed the artist aside, and she came close, and inspected — the coils air-dried to a black gloss no iron could have improved, the rouge laid with an apothecary's restraint, the mole brought up dark, the lashes soot-fine — and Fanny, who had painted half the faces in that house and been painted by the other half, gave the verdict of one tradeswoman to another, hushed with respect: "...The *match tip*. On the mole. Katie, that's — I'm learning that. That's criminal, is what that is. You look nineteen and like you know things nineteen doesn't." She sniffed hard, once, warned herself audibly not to begin crying at this hour, and lost the case at once.
+
+Then the house arrived, and the building of the bride became the raising of a barn.
+
+They came with tributes, the girls, filing in nightgowned and reverent: white stockings hoarded since Philadelphia; the grey gloves; a petticoat with lace worked by somebody's dead grandmother; a garter, blue, presented with a filthy blessing that made the whole room shriek and Fanny drop her pins. And the hair went up under Fanny's hands — and it was the pins off the nightstand that did it, the row of them laid nose to tail like money, going back into the black coils one by one, and if Katie held the last one a half-second in her palm before surrendering it, the room was too loud to notice and the one who'd have noticed was at the door.
+
+Het stood there with a box.
+
+The room went quiet the way rooms did around Het. She came in, set the box on the bed, and lifted out of it — folded in paper that had been folded a long time — silk. Deep blue silk, the blue of chicory, the blue of dusk over a garden, twenty years old and kept like a grudge: a gown cut in a fashion one war out of date and finer than anything currently earning in the house. The girls made not one sound.
+
+"Blue," said Het, to the dress, not the room. "The old way. Irish brides wore blue when green was for the other crowd — and it's true besides. *Marry in blue.*" She smoothed the silk once with the flat of her hand, a touch that had nothing of the ledger in it. "I wore it the once. It's been waiting since New Orleans for a better outcome than mine." Her eyes came up to Katie's, and the dryness held, and under the dryness, for exactly one second, it didn't. "We'll take it in at the waist. You've kept your figure better than I kept my faith. Arms up."
+
+It fit as if the twenty years had been a tailor. And when the last hook was fought closed and Fanny had circled her three times making sounds like a kettle, they turned her to the glass — and the mirror held a woman in dusk-blue silk with black hair coiled and pinned with a tinker's currency, a match-dark mole, a bent pin bright on her finger, and green eyes that had been called devilish, sharp, and undertaker's, and were today simply enormous — and the room behind her in the glass, a bawdy house's worth of women in their nightclothes, every one of them crying except the madam, and the madam excused on a technicality.
+
+It was Fanny who spotted the water jug on the sill — the hedge-bouquet standing in it, outrageous and lovely, chicory and Queen Anne's lace, blue and white, exactly the colors of the day as if the fields had been told in advance. "*These* — " she pounced, already trimming stems with her sewing scissors. "Who on earth brought — " and then she caught the look on the bride's face, and being Fanny, and quicker in the heart than anywhere else, she asked nothing further at all, only bound the stems in a white ribbon and put the fields of Gettysburg into Katie's hands.
+
+Somewhere below, the parlor clock gathered itself and struck the half hour.
+
+Het appeared at the door in her churchgoing black, gloves on, terrible and magnificent, and surveyed the finished work once, general to regiment.
+
+"Ladies," said Madame Hettie Duquesne. "Form up. We are going to church."

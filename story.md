@@ -1508,3 +1508,39 @@ Somewhere below, the parlor clock gathered itself and struck the half hour.
 Het appeared at the door in her churchgoing black, gloves on, terrible and magnificent, and surveyed the finished work once, general to regiment.
 
 "Ladies," said Madame Hettie Duquesne. "Form up. We are going to church."
+
+---
+
+*Her turn (the author, verbatim):*
+
+> "Ya'll, watch the Father's face when he comes out of the confessional. Let me know if he blushes." I smile.
+
+---
+
+The shriek that went up from the girls scandalized the parlor clock, and the bets were laid before the front door was open — a dime on a blush, two bits on a cough, Fanny holding the stakes in her glove. Het, pulling on her second glove, dashed the market with a single quotation of the odds: "Malachy Doran," she said, "has heard *New Orleans*. But watch we shall."
+
+The procession of the house up Baltimore Street was, by general agreement of everyone who witnessed it, the event of the season. Six women and a madam in churchgoing best, walking two by two behind a bride in twenty-year-old blue silk, through a Sunday town that knew every one of them by lamplight and had never once seen them by day — and the town did not know what to do with its hats, and did every possible thing: full tips, half tips, tips arrested mid-air by wives' elbows. At her gate Miss Constance Zeller stood with her committee basket and watched the whole blue-and-black length of it pass, and her face did several things that had no names, and the last of them, held one second too long before she turned away, looked almost like being left out. Doc Sparrow, at his shop door, uncovered his head entirely and held the hat to his chest like the flag was passing. Tad Pfoutz fell in alongside for a full block, walking backward, pronounced the bride "worth a quarter, easy," and was gone.
+
+The church had been made ready in the way of a place where forty men had nothing to do all day and one thing worth doing. The cots were angled toward the altar end like pews rearranged by longing; the boys had been propped, combed, and shaved to a man — some by the Sisters, the steadier ones by each other — and behind the rope in the far corner, propped highest of all on a bolster engineering that had taken three men and a plank, Patrick Slattery held the seat he'd claimed, and when the bride came up the hospital aisle in her blue, he put his two wharf-hands together and led the whole broken congregation in a storm of applause that Father Doran, arriving vested from the sacristy, elected formally not to hear.
+
+Then the confessional — a curtained corner of the sacristy passage, this being a church at war — and Katie went in, and the house settled into a pew to watch the curtain like a cockfight.
+
+The reports, assembled afterward from six witnesses under Fanny's cross-examination, established the following record. Duration: longer than any confession in the observed history of the parish — "three rosaries, if I'd been saying them," per the girl detailed to time it. Audible incidents: laughter — the *priest's* — twice; once brief, once entirely helpless, a wheezing gravel-slide that went on some seconds and was followed by an authoritative thump, as of a fist brought down on a knee. And then, for a long middle stretch: nothing. A quiet so complete the congregation's forty boys could be heard breathing, a quiet with weight in it, the kind the house knew from doors it did not knock on. And then the murmur again, low and level, the box doing its oldest work.
+
+Father Doran came out with his face composed entire — not a blush on him, and Fanny paid out the stakes with heavy sighs — but the six witnesses agreed unanimously on the one detail: the old man stopped, mid-passage, and looked up at the roof of his church a long moment, the way a man checks that the beams have held through weather. And what he said, to nobody, to the roof, in the voice of a man closing a book he had enjoyed against every expectation, was:
+
+"Shorter than she feared."
+
+Katie came out to light her penance — whatever it had been, it sent her to the Lady altar, where she lit not the rack but one candle, a single flame set down with the care of a woman placing a name — and it was there, rising from the little light, that she found the grey waiting for her.
+
+Sister Marie-Agnès stood in the side aisle with her hands folded and her face bare as winter, and she did not arrange linen, and she did not look away, and when she spoke it was low and straight through, a woman who had rehearsed this all night against a cell wall and meant to be done before her courage was.
+
+"Before the rail," she said. "As Father promised you. So." A breath. "I had a sister. Margaret. Older than me by two years. In Baltimore, in the forties, she went into your trade — into a house off Fell's Point — and my family, being good people," and the word *good* came out of her like a nail drawn from wet wood, "had her taken up and put into the Magdalen asylum on Aisquith Street. For her rescue. For the saving of her soul. I was fourteen. I carried the basket the day we walked her to that gate, and I was proud of us." The steady hands were not steady. She watched them fail, clinically, and went on. "She died inside it in the third year. A fever, they told us, and a redeemed soul, and my mother kept the letter in her missal like a relic. And I became a nurse, and then I became this — " one small motion at the grey habit, the wimple, the whole of it, " — and I have spent my vocation, Katherine, pulling women out of the water my family drowned my sister in. I never once let myself see that we were the water.
+
+"I knew your face in this town the first week — I knew you in Baltimore; you'd have no cause to remember; I was nobody, visiting a house where a plain girl's sister laughed on the stairs. And your name I had from our own registry rolls, for I looked, God forgive me, the way you'd look up an old grief. And when the committee's petition began, I was afraid for you — of the writ, of the shipping-out, of the roads — and I wrote what I wrote, and paid the provision at the Good Shepherd from my own dowry money, and I told myself the whole while it was love. Father Doran asked me one question last evening. He asked whose rescue I was writing." The bare face did not weep; it had gone somewhere past that, where the practice is. "I was writing Margaret's. Twenty years too late, to the wrong woman, in the same fair hand I learned at the school my parents' goodness paid for.
+
+"So. Here is the whole of your answer, and the end of my business." From her sleeve she brought nothing — only her two lime-burned hands, open, empty, shown like an inventory. "The retraction went into Father's keeping this morning, in writing, signed as full as the sin was. The provision at Philadelphia is cancelled and the money's gone to the ward. There is no letter anymore, Katherine. There is only what it did, which I cannot call back, and I am not asking your pardon for it — I have no right to the *relief* of your pardon. I came only so you'd kneel at that rail knowing the truth of every hand that touched your name." 
+
+She looked, once, at the single candle burning at the Lady altar, and then at the bride in blue, and the last of it came out barely above the flame:
+
+"Margaret would have — " It stopped. The hands folded themselves away into the grey. "Be happy, Katherine. That's all. Be happy."

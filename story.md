@@ -1404,3 +1404,23 @@ Not in the kitchen where he'd been ordered to wait — at the gate, which was as
 He opened the gate. He took off his jacket — the worn blue army sack coat, warm from him — and hung it around her shoulders the way he'd hung the shawl that first morning, not to make her decent, the town could still go to hell, but because the night was cold off the town and that was the whole of his reasoning, and it showed. And he gathered her in against his chest, arms and jacket and all, and stood there in the yard holding her with his chin on the crown of her head while the drum finished its rounds somewhere streets away and the thrush's garden went quiet and dark around them.
 
 "Whatever you spent," he said at last, very low, into her hair, "it's bought, and I'll not be askin' the figure till you're ready to deal it. There's a warm kitchen, a madam pretendin' she's not watchin' the window, and a fire I'm after buildin' up in the stove that'd shame a forge." A pause; the smallest breath of the grin arrived in his voice, gentle as it had ever come. "Come in home, Mrs. Sloan-that's-promised. The night's paid for."
+
+---
+
+*Her turn (the author, verbatim):*
+
+> "I'm fine." She says, pulling the jacket on properly, pushing her arms through the sleeves. Then she stops and grabs him by his good arm, swings him back toward her, and kisses him hard and deep.
+
+---
+
+He went where he was swung — a man of the fairs knows better than to fight a strong hand on a lead rope — and then the kiss arrived and there was no more of the fairs in him at all.
+
+It was not the porch kiss, nor the kitchen kiss, nor any coin from the earlier mintings. This one was hard and deep and had the whole day in it — the ward and the rope and the office and the drum — and he understood, somewhere in the middle of it, that he was being used the way you use ground after a long march: as the place you finally put your weight down. So he stood for it. Gave her his weight back. One hand at the small of her back and one in the black fall of her hair, in his own coat with her arms down the sleeves of it, in the dark of a garden in a curfewed town, until she was done — and it was her that ended it, the way it was her that had begun it, which was the whole grammar of them in one sentence.
+
+"'*I'm fine*,' she says," he murmured, when he had his breath found, forehead down against hers. "God preserve me the day you're *thrivin'*."
+
+They went in. The kitchen was banked orange and warm as promised, and Het sat at the end of the table in a pool of her own lamplight, sealing a letter — the wax pressed, the address turned face-down under her palm as they passed, and her eyes lifting exactly once, doing the sweep, pricing the jacket on Katie's shoulders and the state of the pair of them and entering it all under some heading of her own. "There's tea in the pot," was the entirety of Madame Het's commentary, "and the stairs is where you left them."
+
+On those stairs, at the turning of them, he told her tomorrow in ten words a side: himself to the church before Mass — Doran's canonical questions, and a Louisiana Tiger owed his ration of abuse through a shutter slat — then the trenches till three, for Hornbeck kept no sabbath the county was paying for; and back scrubbed and shining for four o'clock. "And one item more," he said, at her door, with the candle throwing the two of them huge up the slope of the ceiling. "Tomorrow night, after the priest's part — there's the *other* weddin'. The jump. And I've been thinkin' on the buildin' of the budget, for a budget's wanted to jump over, and all me father's kit that's left me is the one tinsnips I carried out of Boston." The grin came up slow in the candlelight, and underneath it sat something older and entirely serious, the way the sea sits under weather. "So tomorrow I'll build us one. Out of what a war leaves lyin' around — same as the family, same as the congregation, same as the whole of this improbable outfit. It'll be the only budget in America made of Gettysburg." He caught her hand — the ringed one — and kissed the knuckle by the pin-ring, once, like punctuation.
+
+"Now. In with you, a stór. It's the last night you'll ever go to sleep an O'Shea, and I'd not steal a minute of it from you — unless invited."

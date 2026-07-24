@@ -1339,6 +1339,12 @@ He set down his pen. He squared the paper in front of him with both hands, takin
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> I shut the door behind me, then lean forward over his desk, palms flat, staring him in the eyes. "You wrote the letter. You drafted the eviction of myself and the others. Why? Jealousy? Love unrequited? Because you never offered me a bed to lie with you in besides the one I pay with my body to keep. You always acted like it was a business transaction, not a courtship. Why now, Quinn? What's this about?"
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |
@@ -1356,3 +1362,23 @@ He set down his pen. He squared the paper in front of him with both hands, takin
 | gred | money |
 | gammy | bad, wrong, crooked |
 | glokin' | looking, watching |
+
+---
+
+He was up before she finished — not toward her; past her — and at the door in three strides, checking the latch she'd already thrown, tilting the blind slat to read the step outside, where the boots-private stood radiating his desperate wish to be elsewhere and hearing, please God, nothing. Then Quinn turned, with the door at his back like a man holding a breach, and the office was suddenly very small: one lamp, two people, and the truth out on the floor between them where anyone could step on it.
+
+"You will *lower your voice* in my office." It came out at a pitch just above a whisper and wound tight as fence-wire — and it was an admission, the first one, and both of them heard it land.
+
+He stood there a moment, breathing through his nose, a man taking inventory of a position that had just lost its wall. And then Sergeant Elias Quinn — who lived in procedure the way other men live in houses — did the thing procedure could not do for him: he answered.
+
+"I wrote no letter." Flat. True — and she'd watched enough men lie across pillows to bank it. "Your *rescue* come from your own side of the church, madam — a fair convent hand and a signature to it, as you well know, or you'd not know the half of what you walked in here knowing." The flint eyes narrowed, and the cold thing under them sat up. "Which brings me to the other matter, before we come to your *why*. Whoever taught you the word *drafted* — whoever put it in your head what a sergeant did or didn't pen at this desk — has been inside papers no civilian's eye had any lawful business near. I'd think hard, madam, on how loud you spend that word, and on the neck of whoever sold it you. There's men in this town would hang lighter than they know."
+
+He came back toward the desk then — not close to her; he came around the *far* side, and she marked it: he put the furniture between them the way she'd once watched respectable women rearrange a pew.
+
+"Now. Your why." He said the word like a rivet going in. "*Jealousy.*" The scorn was total, immediate, and one full degree too loud for the room he'd just quieted. "*Love.* You'd flatter yourself a courtship out of a — " and there the sentence went down, and he rebuilt it colder. "You called it right the first time. A business transaction. That was the entirety of the arrangement, madam, and you kept your side of it — " the smallest hitch, a syllable wide, there and buttoned, " — admirably. What it never was, was *courtship*. What it was, was a man managing a — " he chose the word with both hands, like tongs, " — a *condition*. You weren't a woman I failed to court. You were a fever I quarantined. Scheduled. Paid. *Contained.*" The lamplight caught his face and it was a strange sight: contempt laid over want laid over shame, three coats of paint on the one door, every layer showing through.
+
+"And your *why now* — I'll give it you, since you've paid the walk over." He set his knuckles on the desk, mirroring her without knowing it, the two of them leaned over the drowned paper like surveyors over a map of ruin. "Your committee of Christian ladies is after turning this town over, madam. Petitions now. Investigations after — that's the order of it, always. And when they turn over the houses, they turn over the *books*. The ledgers. The lists. Whatever's kept in bureau drawers by sentimental girls." A muscle moved in his jaw. "This town is full of stones, and under one of them is every man that ever climbed those stairs, and when the turning starts, I intend to be standing on *none of them*. Your house shipped beyond the lines is a house that testifies to nobody. That's your why. It was never about wanting you gone." The voice dropped to its floor, and for one unguarded second the third coat of paint was the only one showing. "It was about wanting it to have *never happened*."
+
+He straightened. Rebuttoned the one regulation button. Put the sergeant back on over the man, seam by seam.
+
+"So. You've walked into a military office at curfew, madam, knowing what you ought not know, to ask me questions you already had the answers to. That's not curiosity. In my experience of your establishment — " and the old contempt came back up, aimed at himself as much as her, which made it no kinder, " — everything has a price and the party names it plain. So name it. What is it you're here to sell me — your silence, or my ruin?" The flint held steady across the lamp. "State your price."

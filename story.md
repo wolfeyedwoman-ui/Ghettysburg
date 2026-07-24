@@ -1424,3 +1424,25 @@ They went in. The kitchen was banked orange and warm as promised, and Het sat at
 On those stairs, at the turning of them, he told her tomorrow in ten words a side: himself to the church before Mass — Doran's canonical questions, and a Louisiana Tiger owed his ration of abuse through a shutter slat — then the trenches till three, for Hornbeck kept no sabbath the county was paying for; and back scrubbed and shining for four o'clock. "And one item more," he said, at her door, with the candle throwing the two of them huge up the slope of the ceiling. "Tomorrow night, after the priest's part — there's the *other* weddin'. The jump. And I've been thinkin' on the buildin' of the budget, for a budget's wanted to jump over, and all me father's kit that's left me is the one tinsnips I carried out of Boston." The grin came up slow in the candlelight, and underneath it sat something older and entirely serious, the way the sea sits under weather. "So tomorrow I'll build us one. Out of what a war leaves lyin' around — same as the family, same as the congregation, same as the whole of this improbable outfit. It'll be the only budget in America made of Gettysburg." He caught her hand — the ringed one — and kissed the knuckle by the pin-ring, once, like punctuation.
 
 "Now. In with you, a stór. It's the last night you'll ever go to sleep an O'Shea, and I'd not steal a minute of it from you — unless invited."
+
+---
+
+*Her turn (the author, verbatim):*
+
+> "You better fuck me without a rubber tonight and cum inside me, since it's the last night I'll be a whore, and the night before I'll be your wife, and I'm not one for restrictions on the night before my life changes entirely. I say to hell with the church and their writ of what's right and how a woman should handle herself. Plus, if the seed sticks, no one will argue with a pregnant woman about what she used to be. Pregnant women's eyes are filled with primordial rage." And she steps into her room, dragging him by the hand.
+
+---
+
+He went by the hand as he'd gone by the arm — willingly, and one step behind — but at the threshold he stopped, and turned her, and took her face in his two hands, the smithing one and the mended one, because there were bids a man let stand and bids a man confirmed aloud, and this was the second kind.
+
+"Mind what you're biddin', a stór," he said, low. "You've had the faults read out — thirteen dollars the month, a war with a mortgage on me, a road for a roof — and here's you biddin' the whole farm on top of it, this night, with your eyes open." He searched her face exactly as long as it took to find what was in it, which was not long, for she'd never once hidden anything from him she'd decided to show. And the gravity broke up through him into something enormous and bright, like ice going off a river.
+
+"*Done*," he said. "Done, and God help Adams County.
+
+"And I'll tell you what you're biddin' *into*, since we're dealin' plain. My people counts wealth in childer and horses, in that order, and I've been a poor man in the both the whole of me American life. You're not offerin' me a risk, woman — you're offerin' me the *bank*." The grin was arriving now, wholesale. "And *primordial rage* — Katie. Katie. I have *seen* it. My mother carried six on the roads of two countries, and I'll swear on the beads there was never a bailiff, a peeler, nor a parish priest would come within a furlong of the camp when she was carryin'. A pregnant travellin' woman is the one law of nature the English themselves respected. The town wants arguin' with? Let them come. I'll sell tickets and retire.
+
+"Two small matters of the contract, and then I'm yours entire." He held up one finger, solemn as Doran. "The first: I'll not be repeatin' *to hell with the church* to the man that's marryin' us at four o'clock. The poor fella's had three weeks of endin's; we'll not hand him heresy at the rail on top of it." The second finger. "And the last — for you said it twice now, the whore tonight and the wife tomorrow, like there's two women and a border crossin' between them. There's one woman, a stór. One, the whole way through, and she's the one I'm for. The names change. The face on the coin doesn't." His thumb moved along her cheekbone, once. "And you know the family policy on faces."
+
+The door closed.
+
+And what the last night of Katie O'Shea held was hers, and his, and nobody else's — not the town's, not the census's, not the box's, and none of this page's. On the nightstand the two-faced coin kept its double watch, and the row of pins lay nose to tail like money, and the rosary on the bedpost minded the wall as instructed. Downstairs, Het's lamp went out; across town, Quinn's burned on over paper; south along the ridges the trenches held their five hundred told and quiet dead; and in the small room under the slope of the roof, the candle — this once — was let burn all the way down.

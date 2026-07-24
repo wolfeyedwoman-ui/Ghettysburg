@@ -1167,6 +1167,26 @@ He brushed the crumbs from his cupped hand — carefully, into a pocket, a Famin
 
 ---
 
+*Her turn (the author, verbatim):*
+
+> "Mairtín Ward, not sure of the regiment, but he's on a gravedigger contract under Hornbeck, his parish would be one back in Galway, and whichever priest serves his regiment on the road, you currently, maybe, and we were hoping for this Sunday, since there is an active eviction notice issued from one of your Sisters with my Catholic birth name at the top of it, on account of being a whore, which I won't confess to you, since you already know it, so I've stated it instead."
+
+---
+
+Father Doran received the entire volley without moving anything but the eyebrow, and when it was done he addressed the pieces of it in his own order, like a man sorting mail.
+
+"*Stated, not confessed.*" A dry sound happened in him that had been a laugh in some earlier decade. "Noted for the census, child, where it was already entered. And you may stand down off that particular gun — I'll not hear confession standing up in a sacristy doorway, and you'll not provoke me into refusing you in one either. As for the box: when you come to it — and you'll come to it, it's the floor the sacrament stands on — you'll bring me *your* account, the one between you and God, and not the town's account of you. I'll not be writing your list for you, and the trade itself is census, not box. Bring me what *you* judge wants the floor swept. It's shorter than you fear. It always is.
+
+"Now. *Mairtín Ward.*" And here the grey face did its second unbudgeted thing of the morning: it warmed. "The Sixty-Ninth New York — I'll save you the inquiry; there's two of them left in this town and the other one's missing an eye. Child, I *know* your man. He's the digger that brings Sister Agnès the names out of the pockets — the pocket-seams, the cap-linings, the fly-leaves — so my dying boys go to God with their own names on them instead of the army's arithmetic. Three weeks I've watched this town hold its nose at that detail, and that one tinker do the tenderest work in the county with a shovel." He looked at the pin-ring with new information in his eye. "The man that tells the dead their county is asking to marry. Aye. Sunday. I'd have found him a Sunday in Advent itself.
+
+"After the last Mass, so — four o'clock, this church, such as the church currently is. I'll want the groom before me first: tonight after his shift if he can slip his contract, or before Mass Sunday at the worst — I've questions canon law obliges me to ask him and thirty seconds' look at his face to take beyond them. Two witnesses, with sense. And I'll tell you what you'll have whether you will or no, child: a congregation." The gravel went briefly soft. "There's forty boys in those pews would crawl on stumps to see one thing in this building *start* instead of finish. You'll be married in a hospital, and it'll be the finest-attended wedding in the borough this year, and the honesty of that guest list would shame a cathedral's.
+
+"Which leaves the last of your volley." He was quiet a moment. When he spoke again, the warmth had banked itself down, and underneath it was the iron, and the iron was very cold and very level. "*One of my Sisters.* You'll tell me — not now; Sunday, or when I call on your madam, whichever's civiler — exactly what's known and how it's known. And I'll tell you the two things I know standing here. The first: if any Daughter of Charity put her hand to a provost's writ, she did it deceived or she did it desperate, and I mean to know which, and I mean to know it from her own mouth, and there is no rank of wimple that puts a woman past answering her priest for a parishioner's ruin." The letters squared themselves against his chest with a small decisive tap. "And the second. I'm an old man of Ulster, child. I know where *rescues* deposit women — I've seen the laundries, and the gates of them, and the washing hung inside like flags of surrender. No parishioner of mine goes through such a gate while I've breath to object with — and I dine with the provost marshal's adjutant on Thursdays, God help my digestion, so my objections arrive with soup." He pushed off the doorframe a final time, and the eyebrow resumed civilian life.
+
+"Sunday. Four o'clock. Bring your man, your witnesses, and the nerve you walked in here with — the Church has employment for all three. Now go home by the sunny side of the street, Katherine O'Shea." The dry near-laugh happened again, somewhere under the cassock. "You're getting married."
+
+---
+
 ### A short glossary of the Cant (Shelta / Gammon)
 
 | Cant | Meaning |

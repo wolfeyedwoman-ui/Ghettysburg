@@ -1,6 +1,6 @@
 # The Diggers of Gettysburg
 
-*A story in turns. Private Mairtín Ward is written by Claude; the woman on the porch is written by the author.*
+*A story in turns. Private Faolan Sloan is written by Claude; the woman on the porch is written by the author.*
 
 ---
 
@@ -12,7 +12,7 @@ Two weeks since the guns went quiet, and the town still could not draw a clean b
 
 The army itself was gone south after Lee. What it left behind was the wreckage and the men detailed to tend it: provost guards, hospital stewards, embalmers with their circus-canvas tents pitched by the depot, and the burial parties, who were paid men and pitied by nobody.
 
-Private Mairtín Ward, late of the Sixty-Ninth New York — which had mustered seventy-five men on the second of July and come off the Wheatfield with fifty — was one of these. A Rebel ball had passed through the meat of his left forearm; not wound enough for a discharge, too much wound for the marching, so the army in its wisdom had traded his rifle for a shovel. He was twenty-five, black-haired, sun-cured to the color of harness leather, with the light, watchful build of a man raised to fairs and horse-dealing. He wore the sling when officers were about and shed it when they weren't.
+Private Faolan Sloan, late of the Sixty-Ninth New York — which had mustered seventy-five men on the second of July and come off the Wheatfield with fifty — was one of these. A Rebel ball had passed through the meat of his left forearm; not wound enough for a discharge, too much wound for the marching, so the army in its wisdom had traded his rifle for a shovel. He was twenty-five, black-haired, sun-cured to the color of harness leather, with the light, watchful build of a man raised to fairs and horse-dealing. He wore the sling when officers were about and shed it when they weren't.
 
 He had spent this day, like the six before it, turning up Confederates from the shallow trenches their own army had left them in, and putting them down again deeper, with lime.
 
@@ -28,15 +28,15 @@ He went still a moment. Then he reached for his shirt, unhurried, the way a man 
 
 He came a step nearer the porch, into the last of the light, and she could see him plain: young, and trying not to look it; a rosary wound twice about the wrist of his bad arm like a horse's hobble; eyes that had a laugh sitting ready in them and something else sitting behind the laugh, further back, that did not laugh at all.
 
-"Mairtín Ward," he said, and touched two fingers where his cap would be if he'd had the sense to wear it. "*Marty*, the sergeant does call me, on account of Mairtín havin' too much of the Pope in it for his taste. Sixty-Ninth New York. You'll have heard of us — sure everyone's heard of us, that's the trouble with bein' famous, they only remember the times you died." He nodded away south, toward the ridges. "There's forty of my regiment in the Wheatfield beyond, and I've the great luck to be the fella diggin', not the fella dug. Six days now I'm at it. Feens, the most of them no more nor sooblik's age — men, I mean, and half of them only boys — and no name on the one of them, only what's wrote in the seams of their pockets."
+"Faolan Sloan," he said, and touched two fingers where his cap would be if he'd had the sense to wear it. "*Sloan*, the sergeant does call me, for Faolan has too much of the auld country in it for his taste. Sixty-Ninth New York. You'll have heard of us — sure everyone's heard of us, that's the trouble with bein' famous, they only remember the times you died." He nodded away south, toward the ridges. "There's forty of my regiment in the Wheatfield beyond, and I've the great luck to be the fella diggin', not the fella dug. Six days now I'm at it. Feens, the most of them no more nor sooblik's age — men, I mean, and half of them only boys — and no name on the one of them, only what's wrote in the seams of their pockets."
 
 He looked at his own hands, red from the lye, and turned them over as though they belonged to another man.
 
 "The buffers of this town — the settled folk, I mean, and no harm meant, it's only the word my people has for them — they do be payin' a digger five dollars the day, and handin' it over with the nose held. And they're right to hold it." He laughed, short. "I've washed in lye and I've washed in skai and I'd want to be washin' in holy water a fortnight before I'd trouble a church door.
 
-"My people's Pavees, if you want the whole confession of me. Travellin' people. *Tinkers*, as you'd hear it said in this country, and no compliment intended by them that says it. Wards of Galway — tinsmiths and horse-men, the finest judges of a bad horse ever swore it was a good one. We misli'd the roads — went travellin', that is — till the Hunger druv us onto the boat when I was a gothlin of ten, and I've been mislin' ever since. Boston. New York. And now every gammy tober in Virginia, with a musket for company." He tipped his head. "So you'll understand, missus, diggin' and movin' on is the two trades I was born to. I only never thought to be workin' the both of them in the one field."
+"My people's Pavees, if you want the whole confession of me. Travellin' people. *Tinkers*, as you'd hear it said in this country, and no compliment intended by them that says it. Sloans of Galway — tinsmiths and horse-men, the finest judges of a bad horse ever swore it was a good one. We misli'd the roads — went travellin', that is — till the Hunger druv us onto the boat when I was a gothlin of ten, and I've been mislin' ever since. Boston. New York. And now every gammy tober in Virginia, with a musket for company." He tipped his head. "So you'll understand, missus, diggin' and movin' on is the two trades I was born to. I only never thought to be workin' the both of them in the one field."
 
-The dark was coming down over the yard now, soft and blue, and somewhere off toward Cemetery Hill a bugle was sounding for men who mostly weren't there to hear it. Mairtín Ward stood twisting the water out of his cuff, glokin' at her sidelong — the way his people had always looked at the settled world: hopeful, wary, ready in the one instant to grin or to go.
+The dark was coming down over the yard now, soft and blue, and somewhere off toward Cemetery Hill a bugle was sounding for men who mostly weren't there to hear it. Faolan Sloan stood twisting the water out of his cuff, glokin' at her sidelong — the way his people had always looked at the settled world: hopeful, wary, ready in the one instant to grin or to go.
 
 "I've two dollars of the town's gred left in my pocket," he said, quieter now, "and a terrible want of skimish on me — a drink, I mean to say — and no house in this town will stand a digger at its bar, for the smell of what I do does come in the door before me. So I'll ask you straight, for you've the look of a woman that knows this town better nor the provost does: is there any door hereabouts would let a man in? For I'd count that a kindness." A pause; the laugh came up into his eyes again, tired and game. "And if there was any chance of a soul sittin' across the table from him while he drank it — a livin' soul, that talks back, for I've had no company this six days but the quiet kind — well. I'd count that a mercy."
 
@@ -84,15 +84,15 @@ He fell in half a step behind her shoulder — fair-day manners: near enough to 
 
 "And you followin' the auld talk without speakin' it — that'll do grand, that's the best arrangement there is. I'll quit the translatin', so. You've no notion of the relief. It's like walkin' with the stone tipped out of me boot."
 
-At the mouth of the lane a lantern swung — two provost men on their round, unhurried, the drum not yet beating. Mairtín's voice dropped from full to whisper in the middle of a word without a seam in it, and his boots went from cobble to grass verge in the same moment, quiet as a lifted latch — a skill learned long before any army had him, on roads where a lit window meant trouble as often as welcome. The lantern passed. The voice came back up like a fiddle retaking the tune.
+At the mouth of the lane a lantern swung — two provost men on their round, unhurried, the drum not yet beating. Faolan's voice dropped from full to whisper in the middle of a word without a seam in it, and his boots went from cobble to grass verge in the same moment, quiet as a lifted latch — a skill learned long before any army had him, on roads where a lit window meant trouble as often as welcome. The lantern passed. The voice came back up like a fiddle retaking the tune.
 
-"Now. As to the divil in me eyes. *Boy*, she says — and me a full corporal's age." He let that sit just long enough to be cheek. "Them's Ward eyes, Katie O'Shea. Dealer's eyes. Me grandda could sell a bishop a blind horse with that same pair and leave the bishop thankin' him for the privilege of bein' robbed. There's no divil in them at all. There's only *commerce*." The grin tilted, and went a small degree honest. "But I'll deal you this much straight, for you said you'd a sharp eye and I believe you. There's a shadow got into them this fortnight that I never put there. That's not the divil lookin' out, missus. That's only what they've been lookin' *at*." He tipped his chin south, toward the black ridges, and then shook the thing off him the way he'd shaken the pump water. "It'll wash. Everything washes, given lye enough."
+"Now. As to the divil in me eyes. *Boy*, she says — and me a full corporal's age." He let that sit just long enough to be cheek. "Them's Sloan eyes, Katie O'Shea. Dealer's eyes. Me grandda could sell a bishop a blind horse with that same pair and leave the bishop thankin' him for the privilege of bein' robbed. There's no divil in them at all. There's only *commerce*." The grin tilted, and went a small degree honest. "But I'll deal you this much straight, for you said you'd a sharp eye and I believe you. There's a shadow got into them this fortnight that I never put there. That's not the divil lookin' out, missus. That's only what they've been lookin' *at*." He tipped his chin south, toward the black ridges, and then shook the thing off him the way he'd shaken the pump water. "It'll wash. Everything washes, given lye enough."
 
 The house rose up ahead of them then — a tall brick place set back off the street, shutters closed like folded hands, one lamp burning yellow at the porch, and in the lamp's circle a woman in heavy silk who stood as though the porch had been built around her. Madame Hettie Duquesne took the two of them in with a single sweep of the eye, the way other people read a ledger line.
 
-"Katie." The lamp came up a few inches. "What in God's name have you drug up my yard?" The light found Mairtín's brass buttons, his boots, and — the nose knowing before the eye did — his trade. "A *digger*." It was not a question. "Diggers is double, Private, and you'll scrub to the elbow at my kitchen basin before you lay one finger on my banister — never mind anything else in the house." Then something shifted in her face; her eyes went up the dark street behind them, once, quick, and her voice came down to almost nothing. "And come in off the step quick, the pair of you. Quinn's been by once tonight already, sniffin' round the yard — and it wasn't for drink he came."
+"Katie." The lamp came up a few inches. "What in God's name have you drug up my yard?" The light found Faolan's brass buttons, his boots, and — the nose knowing before the eye did — his trade. "A *digger*." It was not a question. "Diggers is double, Private, and you'll scrub to the elbow at my kitchen basin before you lay one finger on my banister — never mind anything else in the house." Then something shifted in her face; her eyes went up the dark street behind them, once, quick, and her voice came down to almost nothing. "And come in off the step quick, the pair of you. Quinn's been by once tonight already, sniffin' round the yard — and it wasn't for drink he came."
 
-Mairtín took off his cap and held it to his chest like a man at a wake, and leaned his head a half-inch toward Katie.
+Faolan took off his cap and held it to his chest like a man at a wake, and leaned his head a half-inch toward Katie.
 
 "You'll vouch for me, will you," he murmured. "For I've a feelin' that one's scales weighs souls, and mine's had a hard fortnight."
 
@@ -112,7 +112,7 @@ Madame Het looked from Katie to the soldier and back, and made whatever entry sh
 
 "On your head, then, Katie," she said, and stood aside from the door.
 
-The kitchen was warm and smelled of tallow and yesterday's bread, which after two weeks of Gettysburg was very nearly indecent. Mairtín went to the basin without being told twice and scrubbed to the elbow like a man performing a rite — nails, knuckles, the seams of his wrists, the rosary slipped off and set by the soap dish — thorough past what was asked, and Het, watching with her arms folded, thawed by perhaps one degree. When he was done he laid his two dollars flat on the table, side by side.
+The kitchen was warm and smelled of tallow and yesterday's bread, which after two weeks of Gettysburg was very nearly indecent. Faolan went to the basin without being told twice and scrubbed to the elbow like a man performing a rite — nails, knuckles, the seams of his wrists, the rosary slipped off and set by the soap dish — thorough past what was asked, and Het, watching with her arms folded, thawed by perhaps one degree. When he was done he laid his two dollars flat on the table, side by side.
 
 "One for a bottle," he said, "and the other for whatever the house calls it when a man's let sit in a warm kitchen with the company he came in with."
 
@@ -122,9 +122,9 @@ The bottle that came out of the dresser was better than the money deserved — M
 
 "*Bed*, Fanny."
 
-The head withdrew, giggling, and was gone up the back stairs. Het poured, and while she poured she spoke low, to Katie, in the voice of a woman continuing an earlier conversation. "He wasn't after drink, that one tonight. He was asking *names*. Who lodges here, how long, where from. I told him I keep seamstresses and I never learned my letters." A pause; the cork went back in the bottle with a small, final squeak. "Sergeants don't ask names for their own amusement, Katie. Somebody's been talking to him. Mind who you bring up my yard." One eye went to Mairtín, without heat. "No offense, Private."
+The head withdrew, giggling, and was gone up the back stairs. Het poured, and while she poured she spoke low, to Katie, in the voice of a woman continuing an earlier conversation. "He wasn't after drink, that one tonight. He was asking *names*. Who lodges here, how long, where from. I told him I keep seamstresses and I never learned my letters." A pause; the cork went back in the bottle with a small, final squeak. "Sergeants don't ask names for their own amusement, Katie. Somebody's been talking to him. Mind who you bring up my yard." One eye went to Faolan, without heat. "No offense, Private."
 
-"None in the world," said Mairtín. "It's the sensiblest thing anyone's said to me in a fortnight."
+"None in the world," said Faolan. "It's the sensiblest thing anyone's said to me in a fortnight."
 
 He carried the glasses to the table himself and set the first before Katie — the promised glass, stood as sworn — and raised his own.
 
@@ -202,7 +202,7 @@ He rose then, and fetched the rosary from beside the soap dish where it had lain
 
 It was then that the drum began — far off up Baltimore Street, the flat *tap-tap-tap* of the provost's nine o'clock, rolling door to door through the shuttered town like a peddler nobody wanted.
 
-Mairtín did not move. Or rather, he moved the way a cat moves when it has decided the rain is someone else's trouble: settled an inch deeper into the chair, took up his glass, and let the drum walk past the window without him.
+Faolan did not move. Or rather, he moved the way a cat moves when it has decided the rain is someone else's trouble: settled an inch deeper into the chair, took up his glass, and let the drum walk past the window without him.
 
 "There it is," he said. "Nine o'clock, and every honest soldier in his blankets, and Sergeant Quinn out countin' the unhonest." The divilment came back up into the shallows of his eyes, where she'd said it lived. "I'm after becomin' a criminal in your kitchen, Katie O'Shea. So here's the state of the case. I can slip out the garden way this minute — I've slipped past better men nor Quinn, in worse boots, on darker nights — and be in me blankets with none the wiser. Or — " and he let the *or* stand there, open as a gate on a fair morning, " — you can tell me what this house does with a criminal till reveille. I'd remind you I've no more money. I've only the company of me, and I'm told" — the grin went crooked — "I talk."
 
@@ -279,7 +279,7 @@ Somewhere in the first verse he had lowered himself back into the chair without 
 
 The house had gone so quiet you could hear the candle burning. On the landing the two pale shapes never stirred. Het stayed in the hall door one moment more — a woman hearing that particular ballad in her own house and understanding every line of it down to the cost in coin — and then her lamp turned away, and the light slid off the wall, and the kitchen belonged to the two of them.
 
-"Well," said Mairtín, very soft. "There's my answer. She sings."
+"Well," said Faolan, very soft. "There's my answer. She sings."
 
 He looked at her a long moment across the candle, and there was no grin in him now at all — only attention, of the whole man.
 
@@ -289,7 +289,7 @@ He turned the empty glass once on the wood, and pushed it aside.
 
 "And I'll tell you what you're just after doin', for I don't believe you'd say it of yourself. That's *twice* tonight. At the pump you called yourself the word before the street could throw it, and now you've stood up in your own kitchen and sung the charge against your own trade — give the evidence, worn the flannel, and carried the coffin, all four parts in the one voice." He shook his head. "The first stone at your own window, again. You've a great arm for it, Katie O'Shea.
 
-"Now. My grandda Ward had the one rule at the fairs, and it was religion to him: *name the fault before the money moves, and the sale is blessed. Hide it, and the money's cursed in your pocket.* Fifty year of horses, and I never once — not once — heard tell of a dealer that *sang* the fault." He put his hand flat on the table, a man swearing on something. "You're the straightest dealer I ever crossed, and I've dealt with priests.
+"Now. My grandda Sloan had the one rule at the fairs, and it was religion to him: *name the fault before the money moves, and the sale is blessed. Hide it, and the money's cursed in your pocket.* Fifty year of horses, and I never once — not once — heard tell of a dealer that *sang* the fault." He put his hand flat on the table, a man swearing on something. "You're the straightest dealer I ever crossed, and I've dealt with priests.
 
 "So here's my side of the table, straight as yours. I heard the song. I know its meanin' and I know your trade and I know mine, and whether that song was a mirror or only a lantern held up for my benefit — I'll not ask. It's not mine to ask, and you've dealt me fair either road." A breath, and the tiredness came into it, and the warmth. "For I'll tell you what I'm after realizin', sittin' in this kitchen. I come up your yard beggin' two things — a drink, and a livin' soul across the table. I've had the drink. And Katie — I've had the company. Better company nor any I've kept since I put on the blue coat. The song squared us an hour ago; all the rest of this night is profit.
 
@@ -303,11 +303,11 @@ And he stood, and this time he did not offer her the arm with its fair-day cerem
 
 *Her turn (the author, verbatim):*
 
-> "I know what that word means, Martín. You should take more care with your heart if you don't want it to stop on you before its time." I meet his eyes, steady, somber, then lead him up the staircase to my room.
+> "I know what that word means, Faolan. You should take more care with your heart if you don't want it to stop on you before its time." I meet his eyes, steady, somber, then lead him up the staircase to my room.
 
 ---
 
-*Martín*, she'd said — with the length in the *i*, where it belongs. Two years in the army and no man in it had ever once got his name right; she'd done it on the first try, by way of Clare and Milan, and he went up the stairs behind her carrying that small thing as carefully as the candle.
+*Faolan*, she'd said — the true broad sound of it, the way it's said on the roads of Connacht, not the flat *Faylan* the army had made of him. Two years in the army and no man in it had ever once got his name right; she'd done it on the first try, by way of Clare and Milan, and he went up the stairs behind her carrying that small thing as carefully as the candle.
 
 Her light threw the two of them huge and wavering up the stairwell wall. At her shoulder, quiet, he answered the easy half of it first, because he was who he was:
 
@@ -349,7 +349,7 @@ Not at her door — below. The front of the house. A fist, official, unhurried, 
 
 ---
 
-"With a Quinn," Mairtín said to the ceiling, working the pins-and-needles out of his dead arm, "it's never the obvious. The obvious is against his religion — " and then he registered the particular quality of her grin, and the fact that she was crossing the room with no further ceremony toward the door.
+"With a Quinn," Faolan said to the ceiling, working the pins-and-needles out of his dead arm, "it's never the obvious. The obvious is against his religion — " and then he registered the particular quality of her grin, and the fact that she was crossing the room with no further ceremony toward the door.
 
 "Katie." A beat. "You're never — "
 
@@ -361,7 +361,7 @@ He was a soldier and a tinker both, and so he was into his trousers in the time 
 
 Below, the bolt went back. The door opened on the grey-gold morning: the street, the thrush still selling its ribbons, and Sergeant Elias Quinn on the porch boards with his paper in his hand and two young privates of the guard at his back.
 
-There was a silence of a purity Mairtín had never before encountered in nature.
+There was a silence of a purity Faolan had never before encountered in nature.
 
 Quinn had come to that porch with the entire apparatus of the United States government arranged behind his jaw. All of it was still there. None of it would answer the bell. His eyes went — snapped ceilingward — came down — found no place on God's earth that was safe to rest — and fixed at last, desperately, on the lintel above the door, while his neck went the color of undressed brick. Behind him one private examined the sky as though weather were his whole vocation, and the other looked at his own boots so hard he seemed likely to fall into them. Somewhere across the street, a curtain twitched, and — further down, at her own gate, frozen between two steps with her committee basket on her arm — Miss Constance Zeller turned to salt.
 
@@ -379,7 +379,7 @@ In the hall behind Katie there was a whisper of silk: Het, robe over her arm, su
 
 "Well," she said at last, dry as August. "There's doors answered, and there's doors *answered*." But her eye was on the notice in the jamb, and her voice had lost its floor. *And others.* Three days. It wasn't a raid; it was an eviction of her whole world, served politely at dawn — and led, particular, in a fair hand, with one name that had been given to Quinn like a gift.
 
-Mairtín came down the last of the stairs then, barefoot still, boots in his fist, and he didn't reach for the paper first. He came to Katie and hung the shawl round her shoulders — not to make her decent; the town could go to hell entire — but the morning was cold off the stair stones, and that was the whole of his reasoning, and it showed.
+Faolan came down the last of the stairs then, barefoot still, boots in his fist, and he didn't reach for the paper first. He came to Katie and hung the shawl round her shoulders — not to make her decent; the town could go to hell entire — but the morning was cold off the stair stones, and that was the whole of his reasoning, and it showed.
 
 "I have seen cavalry charges," he said, "was better prepared for what met them than that man was for you. The Sixty-Ninth'd carry you at the head of the column like the green flag itself." The delight was real, and so was the thing under it, already working. He plucked the notice out of the jamb and turned it in the light, and his face did what it did over a horse whose teeth had been filed.
 
@@ -445,23 +445,23 @@ Het watched her all the way up the stairs, and made no answer to the cadets, whi
 
 The sun came up the rest of the way and got to work on the county.
 
-South of town the trenches steamed. Mairtín had made roll at the field camp by the skin of a prayer — in over the orchard wall as the line was forming, cap crooked, invisible by long practice — and by seven he was waist-deep in Pennsylvania with a shovel, and by eight he had what he wanted out of Dan Riordan, because Dan Riordan ran on gossip the way an engine runs on coal.
+South of town the trenches steamed. Faolan had made roll at the field camp by the skin of a prayer — in over the orchard wall as the line was forming, cap crooked, invisible by long practice — and by seven he was waist-deep in Pennsylvania with a shovel, and by eight he had what he wanted out of Dan Riordan, because Dan Riordan ran on gossip the way an engine runs on coal.
 
-"The committee ladies?" Riordan wiped his face with the green patch pushed up, which he did when the officers weren't by, on the principle that the empty socket earned him conversation. "Tuesday. Walked their petition up to the provost's door in a column of twos, Marty, banners short of a band — herself in front, the Zeller one, with a face on her like a closed bank. Whole town seen it. A petition against the *houses*, they say. Now what's a petition, only a list with its Sunday clothes on?"
+"The committee ladies?" Riordan wiped his face with the green patch pushed up, which he did when the officers weren't by, on the principle that the empty socket earned him conversation. "Tuesday. Walked their petition up to the provost's door in a column of twos, Sloan, banners short of a band — herself in front, the Zeller one, with a face on her like a closed bank. Whole town seen it. A petition against the *houses*, they say. Now what's a petition, only a list with its Sunday clothes on?"
 
 "And who does the writin', inside the provost's?"
 
-"Writin'." Riordan snorted. "Quinn prints like a blacksmith's dog. There's a borrowed clerk does the copy-work, and the clerk" — he leaned on his shovel, enjoying himself — "is drownded, Marty. Up to the oxters in passes and permits and dead men's inventories. That office isn't *writin'* papers these days. It's *pinnin'* them together."
+"Writin'." Riordan snorted. "Quinn prints like a blacksmith's dog. There's a borrowed clerk does the copy-work, and the clerk" — he leaned on his shovel, enjoying himself — "is drownded, Sloan. Up to the oxters in passes and permits and dead men's inventories. That office isn't *writin'* papers these days. It's *pinnin'* them together."
 
-At the noon fire, Zeke Freeman sat down beside Mairtín with his tin plate, and ate half of it before he spoke, quiet, eyes on the middle distance where his eyes always were now.
+At the noon fire, Zeke Freeman sat down beside Faolan with his tin plate, and ate half of it before he spoke, quiet, eyes on the middle distance where his eyes always were now.
 
-"That Louisiana man in the church. Slattery." He said the name carefully, like something carried in two hands. "He'll give me what he saw on the Chambersburg road. Told me so through the window, plain out. Man's price is a letter — a long one, wrote proper, to his mother in Tuam, wherever that is — and the priest's too watched to do it and I —" the plate turned slowly in his big hands — "a Black man can't be seen passin' papers with a Reb prisoner, Ward. That's a rope, that is. You know anybody with letters? Anybody that can sit by a window in a church and not be wondered at?"
+"That Louisiana man in the church. Slattery." He said the name carefully, like something carried in two hands. "He'll give me what he saw on the Chambersburg road. Told me so through the window, plain out. Man's price is a letter — a long one, wrote proper, to his mother in Tuam, wherever that is — and the priest's too watched to do it and I —" the plate turned slowly in his big hands — "a Black man can't be seen passin' papers with a Reb prisoner, Sloan. That's a rope, that is. You know anybody with letters? Anybody that can sit by a window in a church and not be wondered at?"
 
-Mairtín looked into the fire, and in the fire was a kitchen, and a woman in it who had a whole ballad by heart and a sharper mind than the provost's clerk.
+Faolan looked into the fire, and in the fire was a kitchen, and a woman in it who had a whole ballad by heart and a sharper mind than the provost's clerk.
 
 "I might," he said. "I'll know tonight."
 
-And at two, when Hornbeck sent him to town with the cart for lime — Hornbeck, who sent Mairtín on the town errands because Mairtín was the only digger who came back with correct change and the cart unsold — he tied up outside the Catholic church on High Street and went in to do his usual trade with the Sister.
+And at two, when Hornbeck sent him to town with the cart for lime — Hornbeck, who sent Faolan on the town errands because Faolan was the only digger who came back with correct change and the cart unsold — he tied up outside the Catholic church on High Street and went in to do his usual trade with the Sister.
 
 It was their arrangement, week-old and wordless in its rules: he brought her the names he turned up — the pocket-seam names, the Bible-flyleaf names, the names inked inside caps — and she gave her dying boys the rest of it, the last mile a soul shouldn't walk anonymous. Sister Marie-Agnès met him in the aisle between the pews-turned-cots, took his little paper of the week's names with lime-grey hands that were the steadiest instruments in that whole groaning church, and blessed him for it the way she always did, like handing back change.
 
@@ -475,13 +475,13 @@ He'd watched those hands all week. He'd watched them tie off a boy's leg above t
 
 "The woman on that list," said Sister Marie-Agnès, very quietly. "The first name. Is she — is *Katherine* well?"
 
-And every bell in Mairtín Ward went off at once, and not one of them showed on his face, because his grandfather had trained that face across fifty fairgrounds before ever the army got it. He'd said no name to her. He'd said no *woman*, singular, to her. He looked at the Sister a long, kindly, terrible second, the way you look at a horse whose papers are beautiful and whose teeth are wrong.
+And every bell in Faolan Sloan went off at once, and not one of them showed on his face, because his grandfather had trained that face across fifty fairgrounds before ever the army got it. He'd said no name to her. He'd said no *woman*, singular, to her. He looked at the Sister a long, kindly, terrible second, the way you look at a horse whose papers are beautiful and whose teeth are wrong.
 
 "She's well, Sister," he said gently. "I'll bid you good day."
 
 Outside he stood by the lime cart a full minute without loading it.
 
-"*Misli*, sooblik," said the window over his shoulder — Paudeen Slattery's voice through the shutter slats, dry as a creek in August. "Whatever you're after smellin', boy, it's blowin' from inside the church. I heard the linen drop from *here*."
+"*Misli*, sooblik," said the window over his shoulder — Patrick Slattery's voice through the shutter slats, dry as a creek in August. "Whatever you're after smellin', boy, it's blowin' from inside the church. I heard the linen drop from *here*."
 
 ---
 
@@ -515,7 +515,7 @@ He let that sit in the candlelight between the three of them.
 
 *Her turn (the author, verbatim):*
 
-> I sit there, spinning a coin on the table. "The Sister. She must have checked the Catholic church's registry. Found my name. Wondered why a good Catholic woman would fall to her knees as whore before she'd marry a decent Catholic man. The truth is, there are no decent Catholic men, and I'd ask the same of her, how she ended up in a habit with a miserable sneer on her gob." I look up at Mairtín. "She's probably sucked off half the clergy in the bell tower herself. Men of the cloth are no different. Most of them suck each other off, or they prey on the young and innocent, but a few of them still have taste for women, too, even ones as ugly and petty as her." I lay my palm over the coin, flattening it to the table. "Heads or tails, Mairtín?"
+> I sit there, spinning a coin on the table. "The Sister. She must have checked the Catholic church's registry. Found my name. Wondered why a good Catholic woman would fall to her knees as whore before she'd marry a decent Catholic man. The truth is, there are no decent Catholic men, and I'd ask the same of her, how she ended up in a habit with a miserable sneer on her gob." I look up at Faolan. "She's probably sucked off half the clergy in the bell tower herself. Men of the cloth are no different. Most of them suck each other off, or they prey on the young and innocent, but a few of them still have taste for women, too, even ones as ugly and petty as her." I lay my palm over the coin, flattening it to the table. "Heads or tails, Faolan?"
 
 ---
 
@@ -531,7 +531,7 @@ He straightened up, and turned his own glass once, and gave her the rest of it s
 
 "And now." His eyes went down to her hand, flat on the wood, and the coin under it, and all the tiredness went out of his face and left the fairground.
 
-"*Heads or tails*, she says. Katie O'Shea, I was callin' coins before I could carry water, so mind me now: rule the first of every fair in Ireland — when the coin's already under the other dealer's palm, you're not gamblin'. You're askin' *permission*. That toss was over before you asked me." He leaned in, and the candle had both their faces now. "So I'll not call it blind, but I'll tell you what I know about the money itself, and you can do the arithmetic. The tails side of every coin ever struck is a *country*, a stór. A harp at home. An eagle here. And the heads side is a face. And my people settled the question generations back: never bet the country. The country never once paid a tinker out." He sat back. "So it's heads. It's always heads, with a Ward. Whatever you've laid on heads under that hand — the letter, the nun, the fight, the road — I'm for the face.
+"*Heads or tails*, she says. Katie O'Shea, I was callin' coins before I could carry water, so mind me now: rule the first of every fair in Ireland — when the coin's already under the other dealer's palm, you're not gamblin'. You're askin' *permission*. That toss was over before you asked me." He leaned in, and the candle had both their faces now. "So I'll not call it blind, but I'll tell you what I know about the money itself, and you can do the arithmetic. The tails side of every coin ever struck is a *country*, a stór. A harp at home. An eagle here. And the heads side is a face. And my people settled the question generations back: never bet the country. The country never once paid a tinker out." He sat back. "So it's heads. It's always heads, with a Sloan. Whatever you've laid on heads under that hand — the letter, the nun, the fight, the road — I'm for the face.
 
 "Lift your palm when you're ready. I'll be here past reveille."
 
@@ -539,7 +539,7 @@ He straightened up, and turned his own glass once, and gave her the rest of it s
 
 *Her turn (the author, verbatim):*
 
-> "It's heads. It's always heads, Maitín. Heads roll, countries rock." I lift my hand. The coin is heads up. I toss it over to him. It's a double headed minted coin from Ireland. "It was my father's. He was mad about collecting them. I never saw the point, but I kept that one, because it was odd." I look up at him. "So the Sister wants to save a whore's soul by kicking her out of the only home she has left. You know what nuns do to women like me in the convents? They brutalize them, torture them until they become domesticated sheep just like Sister what's her fuck. I'd die in there before I'd bend to the will of a god in the shape of a man." I stand up, pace the floor. "But I'll go and write the letters for your friend. My father was a school teacher. He taught immigrants how to speak and write in English with an elegant hand."
+> "It's heads. It's always heads, Faolan. Heads roll, countries rock." I lift my hand. The coin is heads up. I toss it over to him. It's a double headed minted coin from Ireland. "It was my father's. He was mad about collecting them. I never saw the point, but I kept that one, because it was odd." I look up at him. "So the Sister wants to save a whore's soul by kicking her out of the only home she has left. You know what nuns do to women like me in the convents? They brutalize them, torture them until they become domesticated sheep just like Sister what's her fuck. I'd die in there before I'd bend to the will of a god in the shape of a man." I stand up, pace the floor. "But I'll go and write the letters for your friend. My father was a school teacher. He taught immigrants how to speak and write in English with an elegant hand."
 
 ---
 
@@ -557,7 +557,7 @@ He let her pace. He watched her the way you watch weather. And when he answered 
 
 "The first is strategy, for your fear's after teachin' me a thing I hadn't seen. The paper says *conveyance beyond the lines* — the same road for the whole house. But if it's a Sister's letter pinned to the front of it, then for you, particular, there's somewhere they *mean* you to go. Rescue has an address, Katie. Always. Somewhere on the far side of the provost's desk there's a letter with a destination in it — an asylum, a refuge, a house of the Good Shepherd, whatever kind name they've hung on the gate — and I want that address read before the three days is up, for it tells us what we're fightin' and who signed for you like a parcel. That paper's in the provost's office, pinned to its fellows by a drownded clerk." The grin flicked, brief and sharp as a knife shown and put away. "And offices is only fields with roofs on. I'll find a way into that harvest.
 
-"The second thing is mine, and then we'll speak of letters." He looked at her, level, and said it the way he'd told the dead their county. "No one is puttin' you inside a wall. If every other card goes against us — the paper stands, the town wins, the three days runs out — then the last card in the deck is the road, and the road is *mine*, a stór. My aunt Nan's camp winters outside Philadelphia; there's Wards and Coffeys and McDonaghs on every pike from here to Boston, and a woman can vanish onto the roads of America easier nor a coin into silk, and be in company the whole while, and no wall in it, ever. We don't play that card first — you'd be trading your house for the weather, and it's your house, and we'll fight for it. But you'll sleep tonight knowin' it's *in the deck*. Nobody bends. Nobody dies inside. There's a third choice, and I'm it."
+"The second thing is mine, and then we'll speak of letters." He looked at her, level, and said it the way he'd told the dead their county. "No one is puttin' you inside a wall. If every other card goes against us — the paper stands, the town wins, the three days runs out — then the last card in the deck is the road, and the road is *mine*, a stór. My aunt Nan's camp winters outside Philadelphia; there's Sloans and Coffeys and McDonaghs on every pike from here to Boston, and a woman can vanish onto the roads of America easier nor a coin into silk, and be in company the whole while, and no wall in it, ever. We don't play that card first — you'd be trading your house for the weather, and it's your house, and we'll fight for it. But you'll sleep tonight knowin' it's *in the deck*. Nobody bends. Nobody dies inside. There's a third choice, and I'm it."
 
 He let that stand exactly as long as it needed to, and then — because he was who he was — he tipped the scales back toward the living.
 
@@ -593,7 +593,7 @@ Then, working at the button of his cuff with his teeth and his good hand, he got
 
 "Reb done that in the Wheatfield with the last cartridge in his box," he said. "And I've thought since — the amount of trouble the world took, Katie, the powder mined and milled and carted and rammed, the man marched up from Louisiana or wherever God had him — all that industry, to put one furrow in a tinker's arm and be dug under a Pennsylvania orchard for his wages. There's the whole war in me arm. It don't even hurt but when I'm paid attention to it."
 
-He laid the arm across his knee, bandage hanging loose from his fingers, and looked at her across the small gold distance of the candlelight — at her, standing in her own room, in the middle of her own placed and quiet things — and for once in the length of their acquaintance, Mairtín Ward didn't fill the silence. He let it stand. It was a good silence; it had the room's trick in it; it could have held anything.
+He laid the arm across his knee, bandage hanging loose from his fingers, and looked at her across the small gold distance of the candlelight — at her, standing in her own room, in the middle of her own placed and quiet things — and for once in the length of their acquaintance, Faolan Sloan didn't fill the silence. He let it stand. It was a good silence; it had the room's trick in it; it could have held anything.
 
 What he finally said, he said soft, and it wasn't about the war, or the paper, or the three days, or anything downstairs at all.
 
@@ -609,7 +609,7 @@ What he finally said, he said soft, and it wasn't about the war, or the paper, o
 
 "Done," he said, and put out the arm across the space between them like a man sealing a bargain at a fair — which, in every way his people counted such things, he was. "And they say the age of fair dealin's past."
 
-She brought the basin, and the candle nearer, and clean linen from her own store, and set to it, and he made himself hold still for it — which cost him something; she could feel the cost in the arm, the little tremor of a man whose whole schooling was to be the one doing, never the one done for. The last hands on this wound had belonged to a field surgeon working his way down a line of forty men by lantern-light, with the touch, Mairtín observed to the ceiling, "of a fella shoein' a dray horse in the rain" — and the hands before that had belonged to nobody, because he'd rewrapped it himself each dawn, one-handed, by feel.
+She brought the basin, and the candle nearer, and clean linen from her own store, and set to it, and he made himself hold still for it — which cost him something; she could feel the cost in the arm, the little tremor of a man whose whole schooling was to be the one doing, never the one done for. The last hands on this wound had belonged to a field surgeon working his way down a line of forty men by lantern-light, with the touch, Faolan observed to the ceiling, "of a fella shoein' a dray horse in the rain" — and the hands before that had belonged to nobody, because he'd rewrapped it himself each dawn, one-handed, by feel.
 
 Her hands were neither. Her hands were her grandfather's, and they knew what they were about: the soaked dressing eased off patient as candle-wax, the furrow washed clean with soap and cool water, dabbed dry, the fresh linen wound firm and flat with no bind in it, each turn of the cloth lapped like shingling. He started, once, to fill the quiet — some remark already forming about the economy of bandages — and then heard the quiet properly, and understood that it didn't want filling, and let the remark die unspent. That was new too. He watched her work instead. Partway through he said, very low, not a question, not an opening, just a fact set down gently between them:
 
@@ -629,7 +629,7 @@ He moved to sit behind her on the bed's edge, one knee either side, not touching
 
 The last pin came away, and the whole dark weight of it let go and came down over his hands like nightfall.
 
-It put the third silence on him. She had done it twice before — once with a poem in the kitchen, once with a ballad — and here was the third: Mairtín Ward, wordless, both hands full of black wavy hair by candlelight, holding it the way he'd held her hand through the song, like something he was not allowed to spill. He gathered it loose and drew it back off her shoulders, once, slow, the way you'd draw water; and then he leaned forward and put his forehead down against the back of her head, just that, and breathed.
+It put the third silence on him. She had done it twice before — once with a poem in the kitchen, once with a ballad — and here was the third: Faolan Sloan, wordless, both hands full of black wavy hair by candlelight, holding it the way he'd held her hand through the song, like something he was not allowed to spill. He gathered it loose and drew it back off her shoulders, once, slow, the way you'd draw water; and then he leaned forward and put his forehead down against the back of her head, just that, and breathed.
 
 "There she is," he said at last, barely above the candle. "The whole of her, let down."
 
@@ -639,11 +639,11 @@ The pins lay in their row by the coin. The window stood two inches open on the o
 
 *Her turn (the author, verbatim):*
 
-> I exhale. Goosebumps form on my shoulders, my breath stutters. "Marty, when will you be able to leave the arm?"
+> I exhale. Goosebumps form on my shoulders, my breath stutters. "Sloan, when will you be able to leave the arm?"
 
 ---
 
-*Marty.* The sergeant's word for him, the small flat American coin of his name — and in her mouth, in the dark, it wasn't the sergeant's at all. Nobody had ever said it in a voice he'd have followed anywhere. He filed that away with the pins.
+*Sloan.* The sergeant's word for him, the small flat American coin of his name — and in her mouth, in the dark, it wasn't the sergeant's at all. Nobody had ever said it in a voice he'd have followed anywhere. He filed that away with the pins.
 
 He felt the goosebumps come up under his breath, and the stutter in hers, and he did the animal arithmetic before the other kind: gathered the dark of her hair over one shoulder, out of the way, and brought his arms around her from behind — the good one and the bandaged one both, crossed loose over her collarbones — and drew her back against his chest, so that the question and its answer could at least be warm.
 
@@ -661,7 +661,7 @@ He did not pretend to misunderstand it. She'd asked after the arm the way you as
 
 *Her turn (the author, verbatim):*
 
-> "Are you married, Mairtín?"
+> "Are you married, Faolan?"
 
 ---
 
@@ -675,7 +675,7 @@ And then, because *no* was too thin a coin to hand a woman who'd asked in that v
 
 The candle fluttered; the garden breathed in at the window.
 
-"Then the fever took me father, the winter of sixty. And me mother followed him inside the year — she'd no use for a world he wasn't dealin' horses in; she went after him the way you'd go after a man that walked out with your purse. Me brothers scattered — one west, one to sea. And the McDonaghs looked at what was left of the Wards — one sooblik with a tinsnips and no wagon, no crowd, no rope — and they done the sums the mothers is *paid* to do. A match is families, Katie. And there was no family left on my side of the deal. No malice in it. They dealt fair by their lights. I'd have dealt the same." He said that last steadily, and it had taken him some years, you could hear, to be able to.
+"Then the fever took me father, the winter of sixty. And me mother followed him inside the year — she'd no use for a world he wasn't dealin' horses in; she went after him the way you'd go after a man that walked out with your purse. Me brothers scattered — one west, one to sea. And the McDonaghs looked at what was left of the Sloans — one sooblik with a tinsnips and no wagon, no crowd, no rope — and they done the sums the mothers is *paid* to do. A match is families, Katie. And there was no family left on my side of the deal. No malice in it. They dealt fair by their lights. I'd have dealt the same." He said that last steadily, and it had taken him some years, you could hear, to be able to.
 
 "So the next spring I drifted to New York, where the Irish was raisin' regiments — and I'll tell you the true reason I took the shillin', that I never told the recruiter nor anyone since. It wasn't Ireland, and it wasn't the Union, and it wasn't the bounty, though I took the bounty and ate for a month on it." The breath of a laugh, without much in it. "It was that an army is a crowd that lives in tents, Katie. Moves with the seasons. Sings at its fires. Knows its own and buries its own. I'd lost me people, and I went and joined the only tribe in America that was still recruitin'. The pay's worse nor tinsmithin' and the roads is worse nor Connacht, but a man wants a people. He'll take a poor copy sooner than none.
 
@@ -689,7 +689,7 @@ The candle fluttered; the garden breathed in at the window.
 
 *Her turn (the author, verbatim):*
 
-> "If you marry me, could I follow you? As a soldier's wife?" She hesitates. "Would you want to marry me, Mairtín?"
+> "If you marry me, could I follow you? As a soldier's wife?" She hesitates. "Would you want to marry me, Faolan?"
 
 ---
 
@@ -709,7 +709,7 @@ Then he sat back a little, and the fairground came into him — but slow and gra
 
 "And to your first question — for you asked two, and a dealer answers both." The practical came quick and sure now; he'd been turning it over since before she finished asking, she could see that. "Yes. It can be done, and done *legal*. Every company carries laundresses on its rolls — on the strength, rationed and quartered, wives of the men, four to a company, and Company A's been short two since Falmouth. A soldier's wife on the rolls follows the regiment lawful as the colors themselves. I'll not pretty it — it's washtubs and lye and marchin', you'd be tradin' one trade of washin' the army for another — but it's *with*, Katie. It's the two of us in the one camp, and no provost in America with a word to say against it.
 
-"And now the sweetest arithmetic I've done since I learned to count." The grin broke through the gravity, sharp with delight. "That paper of Quinn's expels *Katherine O'Shea*, spinster, of notorious fame. Katie — there is no Mrs. Ward on any list in Adams County. A wedding doesn't fight the writ. A wedding makes the writ a letter addressed to nobody. And priests — priests is the one article this town has thicker nor flies just now, and the Church waives the banns for soldiers in wartime the way the army waives boots: necessity. It could be done inside your three days. It could be done *Sunday*." He steadied himself; the gravity came back. "We'll do it twice, mind, if you'll have it. Once for God and the law, with a priest and a register and your name wrote new. And once the road way, for my dead — over the budget, the tinsmith's bag; you jump it hand in hand, and that's the marriage me people'd count. My mother'd want the jump. And you'd want me mother wantin' it, trust me.
+"And now the sweetest arithmetic I've done since I learned to count." The grin broke through the gravity, sharp with delight. "That paper of Quinn's expels *Katherine O'Shea*, spinster, of notorious fame. Katie — there is no Mrs. Sloan on any list in Adams County. A wedding doesn't fight the writ. A wedding makes the writ a letter addressed to nobody. And priests — priests is the one article this town has thicker nor flies just now, and the Church waives the banns for soldiers in wartime the way the army waives boots: necessity. It could be done inside your three days. It could be done *Sunday*." He steadied himself; the gravity came back. "We'll do it twice, mind, if you'll have it. Once for God and the law, with a priest and a register and your name wrote new. And once the road way, for my dead — over the budget, the tinsmith's bag; you jump it hand in hand, and that's the marriage me people'd count. My mother'd want the jump. And you'd want me mother wantin' it, trust me.
 
 "And I know the custom says families weds families, and there's neither of us has one — the fever took mine and the road took yours. So here's what I say to the custom." He looked at her, and the further-back thing was all the way forward now, steady as a lit window. "We'll not be two knots tyin' onto a rope, a stór. We'll be the start of one."
 
@@ -725,7 +725,7 @@ He took her hand — the anchor grip, the singer's grip — and held the pin-rin
 
 *Her turn (the author, verbatim):*
 
-> She laughs, loud and bright, a coyote howl of a thing. Her eyes well. "Yes, I will marry you, Mairtín Ward of Galway and the road."
+> She laughs, loud and bright, a coyote howl of a thing. Her eyes well. "Yes, I will marry you, Faolan Sloan of Galway and the road."
 
 ---
 
@@ -745,21 +745,21 @@ Het arrived last, lamp up, silk closed to the throat, surveying the riot in her 
 
 "Married," she said at last, to the room, to the ceiling, to the town beyond it. "The one door out of this county not a soul of us thought to price." And then something moved behind the ledger of her face — the sum coming out, and coming out *paid* — and Madame Hettie Duquesne did an unprecedented thing: she smiled with the whole of her mouth, went downstairs in her own house, and came back up with the Monongahela and six glasses on a tray, like any bride's mother in Christendom.
 
-"To Mrs. Ward-that's-promised," she said, pouring, "who answered my door bare and my question with a shrug, and got herself engaged by Saturday. Gentlemen of the committee — " she raised her glass an inch toward the shuttered window, toward Quinn's drum and Zeller's gate and the whole sleeping respectable town, " — do your worst. The house drinks."
+"To Mrs. Sloan-that's-promised," she said, pouring, "who answered my door bare and my question with a shrug, and got herself engaged by Saturday. Gentlemen of the committee — " she raised her glass an inch toward the shuttered window, toward Quinn's drum and Zeller's gate and the whole sleeping respectable town, " — do your worst. The house drinks."
 
-The house drank. Somebody wanted the date and Mairtín said "Sunday, if the Church can run as fast as we can," and the room became all plans at once — flowers there were none, but Trena's boy could get ribbon; the grey gloves were volunteered; Fanny, tearful and shining and organizing at tremendous volume, appointed herself to duties no one contested — and Mairtín stood in the middle of it with his glass, a man with no family watching a family assemble itself around his bride out of nightgowns and contraband whiskey, and thought: *there's her side of the church filled. I'd best go recruit mine off a burial detail.*
+The house drank. Somebody wanted the date and Faolan said "Sunday, if the Church can run as fast as we can," and the room became all plans at once — flowers there were none, but Trena's boy could get ribbon; the grey gloves were volunteered; Fanny, tearful and shining and organizing at tremendous volume, appointed herself to duties no one contested — and Faolan stood in the middle of it with his glass, a man with no family watching a family assemble itself around his bride out of nightgowns and contraband whiskey, and thought: *there's her side of the church filled. I'd best go recruit mine off a burial detail.*
 
 It emptied slow, on Het's authority — "*Noon*, ladies, same as ever; weddings keep, sleep doesn't" — and the door clicked, and the room came back to its two selves and its one candle, guttering low now, the night nearly spent around them.
 
-Mairtín set down his glass and looked at her — at the wrecked pins, the fallen dark hair, the ring that had been one of them an hour ago — and shook his head slowly, like a man checking a win too big to bank.
+Faolan set down his glass and looked at her — at the wrecked pins, the fallen dark hair, the ring that had been one of them an hour ago — and shook his head slowly, like a man checking a win too big to bank.
 
-"Saturday," he said softly. "I come up your yard two nights back beggin' a drink off a stranger. And now I'm a man with a weddin' Sunday, a war Monday, and a writ to make a fool of in between." He drew her in, chin on the crown of her head, the last of the candle warming the both of them. "Sleep now, Mrs. Ward-that's-promised. We rob the provost of his spinster in the mornin' — and I never once in me life felt richer goin' to bed a criminal."
+"Saturday," he said softly. "I come up your yard two nights back beggin' a drink off a stranger. And now I'm a man with a weddin' Sunday, a war Monday, and a writ to make a fool of in between." He drew her in, chin on the crown of her head, the last of the candle warming the both of them. "Sleep now, Mrs. Sloan-that's-promised. We rob the provost of his spinster in the mornin' — and I never once in me life felt richer goin' to bed a criminal."
 
 ---
 
 *Her turn (the author, verbatim):*
 
-> "So, tomorrow, I go and take down the letters. Then, Sunday, we get married. Then, I follow you along where ever you go. Sounds like it's back to the road for us, Mairtín. I have family near Pittsburgh. If you'd ever like to try and build a home, they're the folks who would show you how to build it. My father and his brothers were carpenters before my father became a school teacher."
+> "So, tomorrow, I go and take down the letters. Then, Sunday, we get married. Then, I follow you along where ever you go. Sounds like it's back to the road for us, Faolan. I have family near Pittsburgh. If you'd ever like to try and build a home, they're the folks who would show you how to build it. My father and his brothers were carpenters before my father became a school teacher."
 
 ---
 
@@ -781,7 +781,7 @@ He was quiet a beat, then added, with the particular pleasure of a man catching 
 
 The candle was down to the blue at the bottom of the wick. He reached past her and pinched it out, and the dark came in warm, and the last thing in the room was his voice, next to her ear, already half gone toward sleep and entirely gone toward home:
 
-"Carpenters, coffins, coins, and copperplate. The hands that made you, Mrs. Ward-that's-promised. I'll try to be worth the joinery."
+"Carpenters, coffins, coins, and copperplate. The hands that made you, Mrs. Sloan-that's-promised. I'll try to be worth the joinery."
 
 ---
 
@@ -811,7 +811,7 @@ The window stood two inches open on the ordinary night. Somewhere far south the 
 
 *Her turn (the author, verbatim):*
 
-> I wake him with a hot cup of coffee. I'm sitting on the edge of the bed with two cups, with milk and sugar added to each. "Up and at 'em, Marty boy. The bodies be rotting."
+> I wake him with a hot cup of coffee. I'm sitting on the edge of the bed with two cups, with milk and sugar added to each. "Up and at 'em, Sloan boy. The bodies be rotting."
 
 ---
 
@@ -825,7 +825,7 @@ He drank half of it in reverent silence, watching the light come through the cur
 
 "Still there," he said, quieter. "I'd half a mind I dreamt the whole night — the yes, the ring, the uncles fallin' out of the sky over Pittsburgh. But there it sits, doin' business in daylight." He leaned over and kissed her, coffee-warm, unhurried, then set the cup on the nightstand beside the coin and the pins and swung out of the bed into his trousers, a man now in the full commerce of a morning.
 
-"Right. The day, so — and mark the joke of it while you're markin' things." He counted it while he buttoned. "You're for the church on High Street: the letters, the Tiger, and whatever the fair hand turns out to be to you. And the priest I'm wantin' for Sunday — where does a priest live, Katie? *The church on High Street.* The whole of our futures does its business in the one buildin' this mornin'." He pulled his braces up over his shoulders. "So here's your second errand, Mrs. Ward-that's-promised, if you'll take it: any priest crosses your bow in that church, you *book him*. Sunday, the pair of us, before God and whatever congregation a burial detail and a bawdy house can muster between them — and don't let him bolt behind the banns; tell him the groom's a soldier under orders and the Church waives for soldiers, he'll know it's true. If he wants the groom in person, I'm his at the noon hour or after the shift, whichever he likes. Meanwhile Riordan and I is for Hornbeck's trenches, and after — " the grin went sharp a half-second, " — a small matter of paperwork at the provost's, on behalf of the establishment entire.
+"Right. The day, so — and mark the joke of it while you're markin' things." He counted it while he buttoned. "You're for the church on High Street: the letters, the Tiger, and whatever the fair hand turns out to be to you. And the priest I'm wantin' for Sunday — where does a priest live, Katie? *The church on High Street.* The whole of our futures does its business in the one buildin' this mornin'." He pulled his braces up over his shoulders. "So here's your second errand, Mrs. Sloan-that's-promised, if you'll take it: any priest crosses your bow in that church, you *book him*. Sunday, the pair of us, before God and whatever congregation a burial detail and a bawdy house can muster between them — and don't let him bolt behind the banns; tell him the groom's a soldier under orders and the Church waives for soldiers, he'll know it's true. If he wants the groom in person, I'm his at the noon hour or after the shift, whichever he likes. Meanwhile Riordan and I is for Hornbeck's trenches, and after — " the grin went sharp a half-second, " — a small matter of paperwork at the provost's, on behalf of the establishment entire.
 
 "And we meet back here at dark, the both of us, and lay out the day's takin's on the kitchen table like honest thieves." He stamped into his boots, took up the coffee, and finished it standing, looking at her over the rim — and whatever the day was about to be, his eyes had already pocketed the morning as clear profit.
 
@@ -861,7 +861,7 @@ She was sanding the Maine man's page when the grey water arrived beside her.
 
 Sister Marie-Agnès, close to: a plain-faced woman near her own age, lime-burned hands, and eyes that held no sneer — had never once held a sneer, which was so much worse — saying only, level as a dosage: "There is one more could use your pen, if your charity stretches past the rope." And she led her down the aisle, past the two privates — who straightened for the wimple and not at all for the lady — to the corner cot by the shuttered window, where a long grey-faced man with a ruined hip lay propped like a fence rail somebody meant to mend later, watching them come with the driest, most alive eyes in the building.
 
-"Well, now," said Paudeen Slattery, in a voice like a creek in August. "Himself said he'd be sendin' a letter-writer." The eyes went over her — the cream, the basket, the Bible riding shotgun — and lit with vast, unhurried amusement. "A Bible and no beads. You're deep under cover, missus. He never said the letters would have green eyes, either. Sit down easy now, and we'll write me mammy in Tuam a pack of lies so beautiful they'll keep her alive ten year."
+"Well, now," said Patrick Slattery, in a voice like a creek in August. "Himself said he'd be sendin' a letter-writer." The eyes went over her — the cream, the basket, the Bible riding shotgun — and lit with vast, unhurried amusement. "A Bible and no beads. You're deep under cover, missus. He never said the letters would have green eyes, either. Sit down easy now, and we'll write me mammy in Tuam a pack of lies so beautiful they'll keep her alive ten year."
 
 The Sister set the little writing-board across Katie's knees, arranging it with those steady, steady hands — and bent close in the arranging, not above a breath, not looking at her at all, she said:
 
@@ -915,11 +915,11 @@ She looked, and he let her look — lay there and *presented*, in fact, with the
 
 He was a long man, built for more flesh than the war had left him. The frame said wharf-hand: heavy through the shoulders, forearms roped and veined, hands made for the cotton-hook and the gun-rammer — big, rope-scarred, steady on the blanket — and all of it wasting now, the meat burning quietly off the big bones so that the architecture of him showed through like a barn in November. His skin had gone the color of church candles, fever-sallow over grey, with the sun's old signature still on him: a hard brown line at the collar and the wrists where Louisiana ended and the man began. The hair was dark copper — rust and river-water — curling flat at the temples with sweat, and three weeks of red-gold stubble climbed a long jaw below cheekbones the hospital rations had brought up sharp as gunwales. An old white nick ran through one eyebrow, some night on some wharf that had ended worse for the other man.
 
-The mouth was wide and did half his talking — hung easy at one corner between sentences, shaped his words lazily, like a man turning tobacco over — and the eyes did the other half and most of the living: whiskey-amber, quick, lit from somewhere the wound hadn't reached, the whole remaining fortune of him concentrated there while the rest of the estate sold itself off.
+The mouth was wide and did half his talking — hung easy at one corner between sentences, shaped his words lazily, like a man turning tobacco over — and the eyes did the other half and most of the living: creek-water blue, quick, lit from somewhere the wound hadn't reached, the whole remaining fortune of him concentrated there while the rest of the estate sold itself off.
 
 And in the telling, they traveled. To her mouth, when the smirk lines showed. To her hands, long and frank, as she squared the parchment and drew the cork — the appraisal of a man who ranked hands above nearly everything. Down the line of her throat to the top button of the cream, and back up, unhurried, entirely unashamed: a man reading the menu in a house where he knew he'd not be dining. And then — to the little bright twist of pin-metal on her finger. Where they stopped. And something in him visibly picked its interest up off the table, carried it to the far side of a fence, and set it down there, still burning.
 
-"Take all the time you like with the lookin', missus," he said, watching her watch him, vastly comfortable. "There's less of me every week — buy now." The corner of the mouth came up. "And I'll confess the traffic runs both directions, since you're bred too honest to blink and I'm too shot to bother lyin'. If that ring on your hand wasn't tinker work off a man I'd call road-kin — I'd be spendin' the last of me strength this minute makin' a scandal of meself over you, and countin' it the finest use of the remainin' estate. A woman with undertaker's eyes and a mouth like the start of trouble, come to write me lies in her best hand — Jaysus, missus, dyin's wasted on the well-companioned." The amber eyes went to the ring once more, and came away clean. "As it stands: I'll admire you like a Christian. From the pew. He's a lucky man, and I've told him so through a shutter.
+"Take all the time you like with the lookin', missus," he said, watching her watch him, vastly comfortable. "There's less of me every week — buy now." The corner of the mouth came up. "And I'll confess the traffic runs both directions, since you're bred too honest to blink and I'm too shot to bother lyin'. If that ring on your hand wasn't tinker work off a man I'd call road-kin — I'd be spendin' the last of me strength this minute makin' a scandal of meself over you, and countin' it the finest use of the remainin' estate. A woman with undertaker's eyes and a mouth like the start of trouble, come to write me lies in her best hand — Jaysus, missus, dyin's wasted on the well-companioned." The blue eyes went to the ring once more, and came away clean. "As it stands: I'll admire you like a Christian. From the pew. He's a lucky man, and I've told him so through a shutter.
 
 "Now." He turned his face toward the slatted window, where the light came through in bars, and she watched him do a thing she'd seen dying men do before: gather a face out of the air. An old woman's face, somewhere in Tuam, being assembled behind his eyes so he could lie to it lovingly. The mouth steadied. The voice, when it came, had dropped its salt entirely.
 
@@ -927,7 +927,7 @@ And in the telling, they traveled. To her mouth, when the smirk lines showed. To
 
 He waited for the scratch of her pen, listening to it like music.
 
-"*It is your own Paudeen, writin' to you by the kind hand of a lady of Pennsylvania, a true friend to me here.*" A pause; the eyes slid to her, one degree of the old glitter returning. "True so far, every word. We'll ease her into the lies gentle — she's a countrywoman; she can smell a falsehood at a mile like rain comin'. The trick, missus, is the same as your trade and mine both." The eyes went back to the window bars. "You lead with the thing that's true."
+"*It is your own Pádraig, writin' to you by the kind hand of a lady of Pennsylvania, a true friend to me here.*" A pause; the eyes slid to her, one degree of the old glitter returning. "True so far, every word. We'll ease her into the lies gentle — she's a countrywoman; she can smell a falsehood at a mile like rain comin'. The trick, missus, is the same as your trade and mine both." The eyes went back to the window bars. "You lead with the thing that's true."
 
 ---
 
@@ -945,7 +945,7 @@ But when her pen moved, the teasing went out of him and something else came in, 
 
 "*I must tell you I was hurt in the late great battle here, but I write to set your heart easy — it was in the leg only, and lightly, and the ball is out, and I am mending fast.*" His face didn't change while the flat wrong blanket lay over the hip that would never swivel right again; the voice held level as a spirit-bubble. "*I am in the care of the Sisters of Charity, who are Irishwomen the most of them, and very good to me.*" A beat. "There. Two lies, one truth, and the truth carryin' the pair of them like a mule. That's the proportion, missus — mark it for your own use. Any more truth nor that and the load tips."
 
-The pen scratched. He listened to it with his eyes shut, the amber banked to coals, and for a moment the whole long ruined length of him was nothing but a man being carried home syllable by syllable.
+The pen scratched. He listened to it with his eyes shut, the blue banked low behind the lids, and for a moment the whole long ruined length of him was nothing but a man being carried home syllable by syllable.
 
 "Now she'll want the place," he murmured. "The neighbors'll ask her *where is he*, and she'll want more nor a name off a map; she'll want somewhere to *put* me when she's prayin'. And here's where I run dry." The eyes opened, and found her, and there was no salt in them at all now — only the honest beggary of a man asking for what he genuinely could not supply himself. "I've seen Pennsylvania three ways, missus: at night, at a run, and from this floor. That's me whole acquaintance with the state. But you — you've walked it in daylight, with them eyes." He tipped his head at the parchment, at the waiting space below the last line, and the mouth came up at its corner, soft this once.
 
@@ -961,7 +961,7 @@ The pen scratched. He listened to it with his eyes shut, the amber banked to coa
 
 He listened to the inventory with his eyes closed and his mouth curling, like a man having a good hand read out to him.
 
-"Listen to her," he said. "She prices a *state* like a bill of lading. Forests, grain, four sorts of beast, taverns, churches — I spent six years on the New Orleans wharves, missus, and that's the finest manifest ever come across me. I could ship Pennsylvania to Galway tomorrow off that list and lose not a crate." The eyes opened, amber and working. "Now we'll edit for the customer. The mines and the mills is *out* — she'd only fret I'd take work in one and die respectable, which'd break her heart worse nor the war. And the eagles is out too." A beat, perfectly flat. "Her son was shot by that particular bird. We'll not put it in the scenery.
+"Listen to her," he said. "She prices a *state* like a bill of lading. Forests, grain, four sorts of beast, taverns, churches — I spent six years on the New Orleans wharves, missus, and that's the finest manifest ever come across me. I could ship Pennsylvania to Galway tomorrow off that list and lose not a crate." The eyes opened, blue and working. "Now we'll edit for the customer. The mines and the mills is *out* — she'd only fret I'd take work in one and die respectable, which'd break her heart worse nor the war. And the eagles is out too." A beat, perfectly flat. "Her son was shot by that particular bird. We'll not put it in the scenery.
 
 "But the rest — and the last thing you said, that's the cargo entire. Write this."
 
@@ -973,7 +973,7 @@ The pen scratched it down. When it stopped, he was quiet a moment, looking at th
 
 "There," he said, softer. "Between the pair of us, that's the truest lie in the whole — "
 
-It took him mid-word. She'd seen it coming half a second before it broke — the nurse-blood in her reading the grey arriving under the candle-wax skin — and then the wave went through the ruined hip and up the long frame, and his rope-scarred hands closed slow on the blanket, and the breath came out of him through his teeth in a thin, disciplined whistle, and for perhaps ten seconds Paudeen Slattery was nowhere in the church at all: just a body, riding it, sweat standing at the copper temples.
+It took him mid-word. She'd seen it coming half a second before it broke — the nurse-blood in her reading the grey arriving under the candle-wax skin — and then the wave went through the ruined hip and up the long frame, and his rope-scarred hands closed slow on the blanket, and the breath came out of him through his teeth in a thin, disciplined whistle, and for perhaps ten seconds Patrick Slattery was nowhere in the church at all: just a body, riding it, sweat standing at the copper temples.
 
 Then he came back. Unclenched the hands finger by finger, like a man counting money he didn't trust. Blinked the ceiling into place.
 
@@ -987,7 +987,7 @@ Then he came back. Unclenched the hands finger by finger, like a man counting mo
 
 ---
 
-He took the flask the way a man takes a hand up out of water — and then he got the cap off it, and the smell reached him, and Paudeen Slattery went entirely still for the second time in five minutes, for a different reason altogether.
+He took the flask the way a man takes a hand up out of water — and then he got the cap off it, and the smell reached him, and Patrick Slattery went entirely still for the second time in five minutes, for a different reason altogether.
 
 "...Missus." His voice had gone careful, the voice of a man declining to startle a miracle. "That is not whiskey. That is *Jameson*. That's Dublin in a bottle. That's — " he put his long nose to it again and closed his eyes, " — Jaysus, Mary and Joseph, I'm after writin' me mother the rain's the same rain, and here's you passin' me the rain itself." He looked at her, then at the Bible sitting placid on the basket, then back at her, with something approaching awe. "Under the *Bible*. Contraband spirits, into a guarded ward, under the Word of God, in a cream frock. You'd have owned half the New Orleans wharves inside a year, and the customs men'd have carried your parcels for you."
 
@@ -997,9 +997,9 @@ One unhurried glance located both guards — the door and the rope, furniture th
 
 He drank. Not greedy — a wharf-man's pull, measured, respectful of another party's bottle — and she watched it land in him and spread, watched the disciplined line of his shoulders come down a half-inch and a shade of the grey retreat from under the candle-wax skin. When he spoke again it was quieter, and for one crack in the drollery, entirely naked:
 
-"That's the first thing's touched the pain in three days that wasn't a surgeon countin' down at me." He recapped the flask with great care and held it out — then paused, the corner of the mouth making its slow climb, the amber lighting back up over the top of the pain. "And I'll make no remark at all about whose flask it is I've just had me mouth on. Admirin' from the pew, missus. The pew's just after gettin' more comfortable.
+"That's the first thing's touched the pain in three days that wasn't a surgeon countin' down at me." He recapped the flask with great care and held it out — then paused, the corner of the mouth making its slow climb, the blue lighting back up over the top of the pain. "And I'll make no remark at all about whose flask it is I've just had me mouth on. Admirin' from the pew, missus. The pew's just after gettin' more comfortable.
 
-"Now." He settled the bolster behind him, and the voice came back to working order, the fire lit under it. "Take up the pen, schoolmaster's daughter, while the Jameson's holdin' the door. We'll finish her letter while there's music in me — and then — " the amber eyes went briefly, deliberately, toward the shuttered window and the road beyond it, " — then you and I has one more item of business, and you'll want your memory sharp for it, so go easy on that flask yourself."
+"Now." He settled the bolster behind him, and the voice came back to working order, the fire lit under it. "Take up the pen, schoolmaster's daughter, while the Jameson's holdin' the door. We'll finish her letter while there's music in me — and then — " the blue eyes went briefly, deliberately, toward the shuttered window and the road beyond it, " — then you and I has one more item of business, and you'll want your memory sharp for it, so go easy on that flask yourself."
 
 ---
 
@@ -1015,7 +1015,7 @@ He drank. Not greedy — a wharf-man's pull, measured, respectful of another par
 
 "Second, the neighbors — for a letter in Tuam is a public document, missus; the whole street'll have it read to them twice. Write: *Tell Mrs. Feeney beyond the bridge that her Michael is here alongside me and doing grand.*"
 
-The pen stopped. Katie looked at him. And Slattery looked back, level, the amber gone still, and answered the question she hadn't asked.
+The pen stopped. Katie looked at him. And Slattery looked back, level, the blue gone still, and answered the question she hadn't asked.
 
 "He's under the hill out there. Third of July." A beat. "His mammy and mine takes tea every Tuesday of their lives. The lists'll reach Tuam by the autumn — let the two of them have the summer first. When the truth comes, mine'll go sit with her." The voice didn't move at all. "Write it, missus. It's the kindest sentence in the letter."
 
@@ -1023,7 +1023,7 @@ He waited while the pen did it, watching the ink go down like a man watching ear
 
 "Now the last. And this one's a trade with two customers, so mind the craft of it." He drew a slow breath, aligning the words. "If I mend, it's an ordinary line and she thinks nothin'. If I don't — " the flat blanket, the wrong hip, the surgeons' smile, none of it arrived in his voice, " — then it's the other thing, and she'll read it at the graveside of me for the rest of her days, so it has to stand the weight. Write:
 
-"*Do not be fretting for me, Mother. I was ever the lucky one of this family — ask anybody. Mind the geese, kiss my sisters for me, and if I am slow writing again it is only that the roads here is long. Your loving son, Paudeen.*"
+"*Do not be fretting for me, Mother. I was ever the lucky one of this family — ask anybody. Mind the geese, kiss my sisters for me, and if I am slow writing again it is only that the roads here is long. Your loving son, Pádraig.*"
 
 The ward went on around them — the weather-steady crying, the water going in basins, the grey Sisters moving — and he lay listening to her pen close the letter out, and when it was done he did a thing that cost him visibly more than the wave of pain had: he made her hand him the pen and the board, and propped himself up on one shaking wharf-hand arm, and at the foot of the page, in a scrawl like a fence falling over, he signed his own name. Then he lay back, spent as a race-run horse, breathing careful.
 
@@ -1031,7 +1031,7 @@ The ward went on around them — the weather-steady crying, the water going in b
 
 She sanded it, folded it, and he watched his own heart go into a stranger's basket, under a Bible, next to an apple — and let it go with one long breath through his nose.
 
-"Good," he said softly. "Good. Now." The amber came up off the basket and fixed on her, and every degree of drollery went out of it, and what was left was the man who had crossed a battlefield at dusk with a rammer in his hands. "Put down the pen entire, missus. Fold your hands in your lap like we're discussin' the weather or me soul. And listen the way himself says you can listen — for what I'm about to give you goes nowhere *near* paper, and it gets said the once."
+"Good," he said softly. "Good. Now." The blue came up off the basket and fixed on her, and every degree of drollery went out of it, and what was left was the man who had crossed a battlefield at dusk with a rammer in his hands. "Put down the pen entire, missus. Fold your hands in your lap like we're discussin' the weather or me soul. And listen the way himself says you can listen — for what I'm about to give you goes nowhere *near* paper, and it gets said the once."
 
 ---
 
@@ -1057,7 +1057,7 @@ He turned his face half toward the shuttered window, and pitched his voice under
 
 "She was on her feet. Unhurt. Mindin' a small boy off some other family the whole hour, hip and thigh, like he was her own. Tell Freeman that part word for word — he'll want to know what she was *doin'*, not just where she was. It'll tell him she was still herself.
 
-"And you'll be wonderin' — the squint's wonderin' it now — why a Rebel soldier sells out his own army's business to the other side of the rope." He came back around to face her, and the amber was as bare as it had been all morning. "Because road people pays water-debts, missus. I drank out of that girl's hands in the rain, from inside the army that took her, and she knew what I was when she poured. There's no side in that column business. There's only shame, and mine's after choosin' its road home." He settled back against the bolster, spent again, but the eyes stayed on her, and sharpened one last time.
+"And you'll be wonderin' — the squint's wonderin' it now — why a Rebel soldier sells out his own army's business to the other side of the rope." He came back around to face her, and the blue was as bare as it had been all morning. "Because road people pays water-debts, missus. I drank out of that girl's hands in the rain, from inside the army that took her, and she knew what I was when she poured. There's no side in that column business. There's only shame, and mine's after choosin' its road home." He settled back against the bolster, spent again, but the eyes stayed on her, and sharpened one last time.
 
 "Now. Say it back to me. All of it — the three items and the girl. Slow, and quiet, and once."
 
@@ -1077,9 +1077,9 @@ He worked himself a half-inch up the bolster, and gave her the whole of it, plai
 
 "That's the true answer, so mind it. Hate's not what carries the thing." He tapped the blanket, once, like sounding the words. "Hate's loud and it's rare and you can see it comin' up the road. *Not-mindin'* is what carries it. Armies is built of men not-mindin' — whole nations is. I hauled cargo six years alongside Black men, free ones and hired-out slaves both — shared rope, shared loads, shared me dinner, for the wharf don't care what color hauls it — and I'd have told you they was my workmates and half meant it, and I never once minded *where the hired ones went at night*. And I'll say the other shameful part too, since we're bein' Christians: half me own street feared the freed man'd underbid them at the scale-house, and there's Irishmen in New York this very week — you'll have seen the papers — doin' the divil's own errands on exactly that fear. My people, missus. Mine and himself's both. So no medals struck on this bed.
 
-"It took a girl with a rope on her wrist puttin' water to my mouth in the rain to make me *mind*." The amber held level. "That's late in a life, missus. I know to the day how late.
+"It took a girl with a rope on her wrist puttin' water to my mouth in the rain to make me *mind*." The blue held level. "That's late in a life, missus. I know to the day how late.
 
-"And your own account — the women you worked beside, kinder nor the men that climbed the stairs — I'd believe it without the swearin'." He nodded, slow. "Work sorts people truer than churches does. A rope gang or a bawdy house'll teach you in a season what a pulpit won't in a lifetime: who lifts when your end's slippin', and who lets it slip." He let one breath of quiet close it out, and then the salt came back up into the amber, deliberate as a man rolling his sleeves back down over honest scars.
+"And your own account — the women you worked beside, kinder nor the men that climbed the stairs — I'd believe it without the swearin'." He nodded, slow. "Work sorts people truer than churches does. A rope gang or a bawdy house'll teach you in a season what a pulpit won't in a lifetime: who lifts when your end's slippin', and who lets it slip." He let one breath of quiet close it out, and then the salt came back up into the blue, deliberate as a man rolling his sleeves back down over honest scars.
 
 "Now, missus. You're stallin' most elegant, and I'm not so young as I was this mornin'." The dry corner climbed. "The three items and the girl. Say them back."
 
@@ -1097,7 +1097,7 @@ She hadn't given him the *sense* of it. She'd given him the *thing* — every wo
 
 "...Mother of God," said Slattery, quietly. "That's not memory, missus. That's *carryin'*." He shook his head, slow, with the particular reverence his people saved for exactly this. "D'ye know what you are? The women that kept Ireland's songs four hundred year in their heads while the harps was burnt — that's the trade you've got and never hung a sign for. He said you'd the head. He undersold you, and I'll tell him so through the shutter."
 
-The amber steadied, and one finger rose off the blanket.
+The blue steadied, and one finger rose off the blanket.
 
 "But I said the three items *and the girl*, and you've given me the three items. The girl's the half your farrier will live on, missus — the half that's not intelligence at all, only heart. So." He settled back, watching her, patient as the pew he'd promised to admire from. "The blue kerchief. Word for word. Out with her."
 
@@ -1111,11 +1111,11 @@ The amber steadied, and one finger rose off the blanket.
 
 He listened the whole way through with his eyes shut, nodding along to it like a man checking a load against a manifest — and at the end the eyes came open, and the one finger rose again.
 
-"Word for word," he said, "save the one. You jumped from *decidin' was I worth an answer* straight to her feet, missus — and you dropped the answer itself. And it's the stitch that holds the shirt." He said it slow, setting it into her the way she'd set the bandage into Mairtín's arm, flat and firm with no bind in it. "*Gettysburg, she says. Long Lane.* Put that in its place and keep it there — for that's the line Freeman'll wear next his skin the rest of his days. A rope on her wrist, an army round her, a river ahead of her — and asked where she's from, she names her street. That's not a girl tellin' a stranger her address. That's a woman statin' her intention to *walk back to it*." He let one breath pass. "Say the whole of her once more tonight in your own room, answer and all, and she's carried.
+"Word for word," he said, "save the one. You jumped from *decidin' was I worth an answer* straight to her feet, missus — and you dropped the answer itself. And it's the stitch that holds the shirt." He said it slow, setting it into her the way she'd set the bandage into Faolan's arm, flat and firm with no bind in it. "*Gettysburg, she says. Long Lane.* Put that in its place and keep it there — for that's the line Freeman'll wear next his skin the rest of his days. A rope on her wrist, an army round her, a river ahead of her — and asked where she's from, she names her street. That's not a girl tellin' a stranger her address. That's a woman statin' her intention to *walk back to it*." He let one breath pass. "Say the whole of her once more tonight in your own room, answer and all, and she's carried.
 
 "And so the business is closed." Something in the long frame let down when he said it — a cargo passed off a man's back after a long portage. "Deliver it to himself or straight to the farrier, whichever comes soonest to hand — but to no third soul, never in company, and never twice. After that it's Freeman's road, God go with him down it.
 
-"Now." The salt came back up the amber like light coming up a lamp wick, and the corner of the mouth made its unhurried climb, and Paudeen Slattery — paid, shriven of his water-debt, and full of another man's whiskey — turned the last of the morning's attention on her like a man with nothing left in the world to spend but curiosity. "The business bein' paid, I'm owed one idle question — a dyin' man's tariff, missus, it's in all the regulations. That tinker silver on your hand, that himself bent out of a pin with his own two thumbs, unless I'm blinder than the surgeons says." The amber flicked to the ring, and back up, bright and unhurried and entirely too knowing.
+"Now." The salt came back up the blue like light coming up a lamp wick, and the corner of the mouth made its unhurried climb, and Patrick Slattery — paid, shriven of his water-debt, and full of another man's whiskey — turned the last of the morning's attention on her like a man with nothing left in the world to spend but curiosity. "The business bein' paid, I'm owed one idle question — a dyin' man's tariff, missus, it's in all the regulations. That tinker silver on your hand, that himself bent out of a pin with his own two thumbs, unless I'm blinder than the surgeons says." The blue flicked to the ring, and back up, bright and unhurried and entirely too knowing.
 
 "When's the jump?"
 
@@ -1169,7 +1169,7 @@ He brushed the crumbs from his cupped hand — carefully, into a pocket, a Famin
 
 *Her turn (the author, verbatim):*
 
-> "Mairtín Ward, not sure of the regiment, but he's on a gravedigger contract under Hornbeck, his parish would be one back in Galway, and whichever priest serves his regiment on the road, you currently, maybe, and we were hoping for this Sunday, since there is an active eviction notice issued from one of your Sisters with my Catholic birth name at the top of it, on account of being a whore, which I won't confess to you, since you already know it, so I've stated it instead."
+> "Faolan Sloan, not sure of the regiment, but he's on a gravedigger contract under Hornbeck, his parish would be one back in Galway, and whichever priest serves his regiment on the road, you currently, maybe, and we were hoping for this Sunday, since there is an active eviction notice issued from one of your Sisters with my Catholic birth name at the top of it, on account of being a whore, which I won't confess to you, since you already know it, so I've stated it instead."
 
 ---
 
@@ -1177,7 +1177,7 @@ Father Doran received the entire volley without moving anything but the eyebrow,
 
 "*Stated, not confessed.*" A dry sound happened in him that had been a laugh in some earlier decade. "Noted for the census, child, where it was already entered. And you may stand down off that particular gun — I'll not hear confession standing up in a sacristy doorway, and you'll not provoke me into refusing you in one either. As for the box: when you come to it — and you'll come to it, it's the floor the sacrament stands on — you'll bring me *your* account, the one between you and God, and not the town's account of you. I'll not be writing your list for you, and the trade itself is census, not box. Bring me what *you* judge wants the floor swept. It's shorter than you fear. It always is.
 
-"Now. *Mairtín Ward.*" And here the grey face did its second unbudgeted thing of the morning: it warmed. "The Sixty-Ninth New York — I'll save you the inquiry; there's two of them left in this town and the other one's missing an eye. Child, I *know* your man. He's the digger that brings Sister Agnès the names out of the pockets — the pocket-seams, the cap-linings, the fly-leaves — so my dying boys go to God with their own names on them instead of the army's arithmetic. Three weeks I've watched this town hold its nose at that detail, and that one tinker do the tenderest work in the county with a shovel." He looked at the pin-ring with new information in his eye. "The man that tells the dead their county is asking to marry. Aye. Sunday. I'd have found him a Sunday in Advent itself.
+"Now. *Faolan Sloan.*" And here the grey face did its second unbudgeted thing of the morning: it warmed. "The Sixty-Ninth New York — I'll save you the inquiry; there's two of them left in this town and the other one's missing an eye. Child, I *know* your man. He's the digger that brings Sister Agnès the names out of the pockets — the pocket-seams, the cap-linings, the fly-leaves — so my dying boys go to God with their own names on them instead of the army's arithmetic. Three weeks I've watched this town hold its nose at that detail, and that one tinker do the tenderest work in the county with a shovel." He looked at the pin-ring with new information in his eye. "The man that tells the dead their county is asking to marry. Aye. Sunday. I'd have found him a Sunday in Advent itself.
 
 "After the last Mass, so — four o'clock, this church, such as the church currently is. I'll want the groom before me first: tonight after his shift if he can slip his contract, or before Mass Sunday at the worst — I've questions canon law obliges me to ask him and thirty seconds' look at his face to take beyond them. Two witnesses, with sense. And I'll tell you what you'll have whether you will or no, child: a congregation." The gravel went briefly soft. "There's forty boys in those pews would crawl on stumps to see one thing in this building *start* instead of finish. You'll be married in a hospital, and it'll be the finest-attended wedding in the borough this year, and the honesty of that guest list would shame a cathedral's.
 
@@ -1219,11 +1219,11 @@ By the depot, the painted sign stood in the sun: **THE DEAD PRESERVED AS IN LIFE
 
 ---
 
-South of town, at the noon fire, Corporal Dan Riordan sat a little apart from the other diggers with a stick in his hand, and in the smoothed dirt at his feet, over and over, with his one eye narrowed to a jeweler's squint, he was writing the same three words in a looping clerk's flourish: *By order of. By order of. By order of.* Mairtín stood over him, arms folded, watching the dirt like a man watching a foal stand up.
+South of town, at the noon fire, Corporal Dan Riordan sat a little apart from the other diggers with a stick in his hand, and in the smoothed dirt at his feet, over and over, with his one eye narrowed to a jeweler's squint, he was writing the same three words in a looping clerk's flourish: *By order of. By order of. By order of.* Faolan stood over him, arms folded, watching the dirt like a man watching a foal stand up.
 
 "God forgive us," said Riordan, not stopping.
 
-"He's busy," said Mairtín. "We'll leave word."
+"He's busy," said Faolan. "We'll leave word."
 
 ---
 
@@ -1247,7 +1247,7 @@ One parcel she did not open. "And there's a matter from the prisoners' ward," sh
 
 Het heard the whole of it without once touching her pen — and at the sealed parcel she looked at her lodger a long second, and something in the ledger-face moved that was almost pride. "Good," was all she said to that. "A woman that can carry a sealed parcel through my front door is worth double what I charge for her. Keep it sealed." She leaned back, and her eyes went up to the ceiling, to the house, to the whole groaning strategic map of the next three days, and she began — Het's version of joy — to *allocate*.
 
-"Sunday at four. Which gives this establishment thirty hours to produce a wedding, and the writ runs Tuesday, so mark the ledger plain, Katie, before we're all giddy: Sunday makes you a wife the paper can't touch. Tuesday the paper still owns this house and every other soul in it. We celebrate *and* we fight; the one's not leave from the other. Your tinker's due at dark with whatever he and the one-eyed corporal has lifted from the provost's paperwork, and the priest's soup goes in on Thursday — late, mind; two days past the writ, so somebody must stretch the writ or hurry the soup, and that's tomorrow's war. Tonight's is simpler." She drew a fresh line in the ledger, actual ink, and Katie saw the page header, written in Het's small tight hand, without one flicker of irony: *WARD — WEDDING — SUNDRIES.*
+"Sunday at four. Which gives this establishment thirty hours to produce a wedding, and the writ runs Tuesday, so mark the ledger plain, Katie, before we're all giddy: Sunday makes you a wife the paper can't touch. Tuesday the paper still owns this house and every other soul in it. We celebrate *and* we fight; the one's not leave from the other. Your tinker's due at dark with whatever he and the one-eyed corporal has lifted from the provost's paperwork, and the priest's soup goes in on Thursday — late, mind; two days past the writ, so somebody must stretch the writ or hurry the soup, and that's tomorrow's war. Tonight's is simpler." She drew a fresh line in the ledger, actual ink, and Katie saw the page header, written in Het's small tight hand, without one flicker of irony: *SLOAN — WEDDING — SUNDRIES.*
 
 "A dress. Witnesses — two, with sense, the priest says, which disqualifies most of the county. I'll stand one if the Church will have me at that rail, and God knows I've kept my face straight in worse buildings." A pause; the dryness went thin for half a second, like silk worn at the elbow. "I've not been inside a church since New Orleans, Katie. It'll survive me. So will I."
 

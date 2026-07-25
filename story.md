@@ -1700,3 +1700,31 @@ Sister Marie-Agnès was not at her basins. She was not folded into any work at a
 When Katie's eyes found her, she did not look away. That was new, too. She came forward instead — three steps, unhurried, the walk she used between cots — and stopped at the exact distance courtesy keeps between strangers, and inclined her head once.
 
 "Katherine." Her own voice, close to: low, careful, Maryland under the convent French of her name. "Father Doran promised you an answer before the rail. I am the answer." The lime-burned hands tightened on each other, and held. "It is not a short one, and none of it is easy hearing, and you owe me nothing — not the listening, not the time, and least of all today of all days." The bare face stayed level, and only the hands confessed. "Will you hear me?"
+
+---
+
+*Her turn (the author, verbatim):*
+
+> "You wrote my name because you thought you could save me from damnation. But it is you, Sister, who is damned by your own hand, and burdened by your own guilt. See to that before you try to write another woman into a convent again. Also, you should ASK THEM IF THEY WANT TO GO. Don't assume it's the best life path for them. You know what happens in some convents. Orphaned children are starved and buried beneath the cobblestones when food is scarce. Women are dragged from their homes and beaten into submission with chores that destroy their minds, and punishments are handed out to break their hearts. Their children are taken from them before they ever get to see them and sold into slavery abroad. You may think you'd have been doing me a favor, doing the kind thing for my soul, but my soul was never the one in peril. The women who wear habits and smother orphans with their wimples in their sleep are the ones you should be chastising, not the women who are trading the last value they have for their chance at a longer life."
+
+---
+
+The Sister stood under the whole of it and never once looked away.
+
+It rose as it went — *ASK THEM IF THEY WANT TO GO* rang clear down the nave, and heads turned on bolsters the length of the ward, and a wimple or two swiveled, and Sister Marie-Agnès did not flinch from being seen scolded in her own church by the bride in blue. She took it standing, hands clasped, the way Katie had watched her take a surgeon's tantrum and a dying man's curses — as weather that was owed somewhere, arriving. And when it was done, and the ward's quiet came back down around the two of them, the Sister said one word.
+
+"Amen."
+
+She let it sit exactly long enough to be understood as no tactic.
+
+"You'll think I said that to disarm you. I said it because you have just described — better, and angrier, and more *accurately* than I have permitted myself to describe it in twenty years — the thing I did when I was fourteen years old." The bare face stayed level; the hands had given up pretending. "You tell me to see to my own damnation before I write another woman's name into a wall. Katherine — your name was the second such name I ever wrote. I will tell you about the first, and then I am done, and you need never hear my voice again.
+
+"Her name was Margaret. My sister. Older than me by two years, and in your trade, in a house off Fell's Point, and my family — being *good* people — " the word came out of her like a nail drawn from wet wood, " — had her taken up and put behind the Magdalen gate on Aisquith Street. For her rescue. For her soul. Nobody asked her. I was fourteen, and I carried the basket the day we walked her to that gate, and I was *proud* of us. She died inside it in the third year. A fever, they wrote, and a redeemed soul, and my mother kept the letter in her missal like a relic." A breath, level as a dosage. "You ask if I know what happens in such houses. Katherine — nothing you named is rumor to me. I nursed in the institutions of Baltimore before my vows. I have laid out the children. It is half of why I nurse soldiers now: the dying of men is cleaner.
+
+"And still — knowing all of it, carrying all of it, vowed and grown and grey — when your committee's petition began, I sat down with my fair hand and I wrote your name, and paid the provision at Philadelphia out of my own dowry money, and told myself the whole while that it was love. I had become the basket, and could not smell it. It took Father Doran one question, three evenings ago, to put my nose in it: he asked me *whose rescue I was writing*." The Sister's eyes closed, one second, and opened. "I was writing Margaret's. Twenty years too late, to the wrong woman, without asking — again.
+
+"So. What's done about it, for your anger's earned facts and not feelings." The voice went flat and clean, an inventory. "The letter is retracted — in writing, signed as full as the sin was, in Father's keeping since yesterday morning. The provision at the Good Shepherd is cancelled, and the money is gone into this ward, where it will buy lint and morphine and asks nobody's soul anything. There is no letter anymore. There is only what it did, which I cannot call back — and I am not asking your pardon for it. I have no right to the *relief* of your pardon. I came only so you would kneel at that rail knowing the truth of every hand that ever touched your name.
+
+"And the last thing, because you said it and it should not go unanswered." She looked at Katie — straight, bare, past flinching, a woman with nothing left to protect. "*My soul was never the one in peril.* No. It was not. I watched you the whole of this week — the letters, the boys, the man behind the rope — and I read the evidence backwards, because I was reading it through a gate on Aisquith Street. You were never Margaret, Katherine. And it was never you that needed saving from your life." The hands folded themselves away into the grey, and the winter face did the nearest thing to breaking it had done all morning, and held.
+
+"Margaret would have — " It stopped, the way it had to. "Be happy, Katherine. That's all. Be happy."

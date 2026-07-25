@@ -1956,3 +1956,23 @@ Ezekiel Freeman had gone very still, the hat gripped in his two big hands, his e
 Faolan nodded to his wife, once, gentle, the way Doran nodded at the rail.
 
 "Say it to him as it was said to you, a stór. Word for word."
+
+---
+
+*Her turn (the author, verbatim):*
+
+> "Stay."
+
+---
+
+One word, in the voice that had put a fork down like a gavel, and it was not an invitation. It was a ruling.
+
+Ezekiel Freeman looked at her a long moment — a man weighing what staying cost against who was asking, and every ledger of the town open in his face: the parlor full of white voices beyond the wall, the hour, the hundred years of arithmetic that had brought him to a kitchen door after dark in his Sunday coat. And then he looked at Faolan, who had already left the door and was pulling a third chair out from the table with his boot, unhurried, as if the ruling had merely confirmed existing law; and at the lamp; and at the bride in her blue silk with her hair half down, standing in her own wedding night telling him *stay*.
+
+"...For the delivery," said Zeke at last, quietly. "And a while after." And he crossed the kitchen, and did the thing that said the rest of it: he set his hat down on the table. Out of his hands. Brim up, beside the lamp, the way a man sets his hat in a house he has decided to be in.
+
+Faolan poured three — the Monongahela had migrated to the kitchen at some point in the evening's campaigns, as it always knew where it was needed — and set one by the hat, and took his own glass back to the door, and resumed his post with his shoulders against the wood, guarding and drinking, both at his ease.
+
+Zeke sat. The big hands folded on the table where the hat had been, and the stillness came over him again — but changed now; not the fence-stillness, the *ready* stillness — and he looked up at Katie and nodded, once, slow, the way you nod to a preacher, or a surgeon, or anyone about to do a thing to you that you have been waiting on longer than you can afford to feel all at once.
+
+"I've walked every road out of this county three weeks with a lantern," he said, low and level. "Say it, missus. I'm ready to hear where the light goes."

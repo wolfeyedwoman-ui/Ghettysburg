@@ -1853,3 +1853,34 @@ And then the tune itself finished arriving through his delight, and he tipped hi
 "And hold now — hold. That air. That's a *carol*, or I'm a bishop's aunt. That's a Christmas shape on that tune — that's angels'-business music, that is; I'd know the cut of it in any tongue on earth; me mother had twenty of them and every one walks just that way." He looked at her — July gold on the street, chicory in her fist, lime and war three streets off in every direction, and his bride singing Christmas in fish-talk on the walk home from her own wedding — and he shook his head like a man declining to wake from something. "Married sixty minutes and she's after openin' Christmas in July on Baltimore Street.
 
 "So out with it, Mrs. Sloan." He drew her hand through his arm and matched her step, bending close, the whole procession trailing gold behind them. "What's the angels sayin'? Deal me the words — for if there was ever a day I'd want the news the angels was askin' after, it's this one."
+
+---
+
+*Her turn (the author, verbatim):*
+
+> She sings:
+> "Arnet eúe genemb kannet pobl ag en doar?
+> Ewan de laret d'ho eun né úèted hemb par
+> Eur mabig beniget roué a Jerusalem
+> E zo gannet eit-ho ér gér a vethléem"
+
+---
+
+She didn't deal him the words. She dealt him the next verse — and watched him work for it, which was the fairest dealing of all.
+
+And he worked it the way he worked everything: out loud, delighted, at trade speed, catching the cousin-words out of the deep water one by one as they went by. "*Pobl* — that's people, sure, *pobal*, same as ours — people of the earth, sing — she's askin' the earth to sing along, that's the angels talkin' — " walking backward again, hand in hers, eyes narrowed with the work, " — *eun né* — heaven, off the sky — news out of heaven, news without — without *equal*, is it? And — " and then the big cognates came up the street at him in a row, plain as family faces at a fair: " — *mabig*. That's *mac*, that's a son, a little son — *beniget*, that's blessed, that's *beannaithe* with its boots wet — a blessed little son — *roué*, that's *rí*, that's a KING — of Jerusalem — *gannet*, born — born for you — in the town of — "
+
+He stopped walking.
+
+The whole gold length of Baltimore Street stood around them, and the procession flowed past on either side like water round a stone, and Faolan Sloan looked at his wife of one hour with the last of the verse assembled in his mouth: *a blessed little son, a king, born for you in Bethlehem.*
+
+The angels' news. Sung to him, on this evening, by this woman, in answer to *what's the news the angels was askin' after* — by the same woman who had laid her bid on the table two nights gone with her eyes open and the candle burning.
+
+"You divil," he said, barely above the street. "You singin', hopin' divil." And he didn't say the rest of it aloud, not on a public street with the town's hats still deciding — but his hand came up and touched her cheek where the match-dark mole sat, once, and everything the wedding-eve had bid for stood plain in his face, hoped-for and unashamed.
+
+Then — because a sung question deserves a sung answer, and his people had never once in their history let another crowd have the last verse — he drew her arm through his, set them walking again into the gold, and gave her back Bethlehem in the other cousin-tongue: the old Irish carol, low and bright, the fireside voice out in the open air at last —
+
+"*Don oíche úd i mBeithil,*
+*beidh tagairt ar ghrian go brách...*"
+
+— of that night in Bethlehem, the sun itself will tell forever — and so the Sloans came down Baltimore Street to the house with the two drowned-cousin languages braiding over their heads, Breton asking and Irish answering, Christmas walking home through July, and behind them the girls humming what they couldn't pronounce, and the town at its doorways hearing — whatever it decided it was hearing — and every hat, by the end of the street, off entirely.

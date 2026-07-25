@@ -1649,17 +1649,39 @@ She heard the breath go out of the old man — long, slow, through the nose, the
 
 "What do you owe, and how will you pay it?"
 
+---
+
+*Her turn (the author, verbatim):*
+
+> "I owe myself a shot at a life that is my own, and not one that I pay with my body to keep."
+
+---
+
+The tin was quiet — but briefly, this time; the quiet of a judge who has heard the plea he was waiting for and wants no theater around it.
+
+"There it is," said Father Doran. "I ask what's owed, and you name the one creditor the entire morning's been circlin' and never once landin' on. *Yourself.* The column I promised we'd come to." A slow exhale. "And I've checked it for inflation, as sworn. There's none. For the first time since you knelt down, Katherine, you've priced a thing exactly.
+
+"Now understand what you've laid on your own back, for it's heavier than it sounds, and I ratify it *because* it's heavy. Any fool can fast. I could lay a thousand rosaries on you and you'd pay them out like rent and feel nothin' but the knees. But a self-convictin' soul, sentenced to live *acquitted* — " the gravel came down slow, like a hand on a shoulder, " — that's hard labor, Joan. You'll be payin' this one on gray mornings for years — every time the old verdict comes up the stairs in its old boots, every time the hand reaches for the stone and your own window's the nearest. The life that's your own must be *lived* as if you deserve it, which you've near no practice at. That's the penance. I've never ratified a harder one.
+
+"The terms, so, that it be canonical and no lawyer's loophole in it. The term is your natural life. The works is this: each time you catch the old sentence startin' up in you — the inflation, the stone-hand, the press agent — you'll stop where you stand, and you'll pray the litany. Your own four words. You composed it over twenty years and it's canonically sound and it was always yours: *guidance, freedom, wonder, love* — only addressed to the house entire this time, all its doors at once, and let the saints sort the delivery among themselves; they're good at it." A beat. "And the Pittsburgh question rides with you free of charge, as agreed. That's the whole sentence. Sworn and entered.
+
+"Now. Your act of contrition — in whatever words you own, child; God's heard every translation ever made and prefers the honest ones."
+
+And when she had said what she said — hers, and the tin's, and no one else's — there came the sound of an old man leaning close, and one hand rising on the far side of the pierced stars, and then the words. The same words he had said over dying boys in job lots on the second of July, wholesale, at a shout, under shellfire — said now at the pace of one soul, retail, entire, the oldest transaction the Church owns passing through a tinsmith's lantern-panel:
+
+"*Deinde ego te absolvo a peccatis tuis — in nomine Patris, et Filii,*" and the hand moved in the dark, "*et Spiritus Sancti. Amen.*"
+
+The stars in the tin held still. Somewhere out in the ward, a man coughed, and forty others breathed.
+
+"There," said Father Doran, gravel gone soft as it ever went, the ceremony folded away. "Shorter than you feared. It always is." The vestments gathered themselves; the shape beyond the screen rose, an old man's knees announcing the labor of it. "Now get up off yours, Mrs. Sloan-that-shall-be. Go and pay your penance the rest of your life — and you can start it at my rail at four o'clock, for I can think of no properer first installment on a life of your own than the one you chose yourself." A last dry rustle, from the far side of everything. "Go in peace, Joan. And God go with the both of you — He's been tryin' to keep up with you all week."
+
 The reports, assembled afterward from six witnesses under Fanny's cross-examination, established the following record. Duration: longer than any confession in the observed history of the parish — "three rosaries, if I'd been saying them," per the girl detailed to time it. Audible incidents: laughter — the *priest's* — twice; once brief, once entirely helpless, a wheezing gravel-slide that went on some seconds and was followed by an authoritative thump, as of a fist brought down on a knee. And then, for a long middle stretch: nothing. A quiet so complete the congregation's forty boys could be heard breathing, a quiet with weight in it, the kind the house knew from doors it did not knock on. And then the murmur again, low and level, the box doing its oldest work.
 
 Father Doran came out with his face composed entire — not a blush on him, and Fanny paid out the stakes with heavy sighs — but the six witnesses agreed unanimously on the one detail: the old man stopped, mid-passage, and looked up at the roof of his church a long moment, the way a man checks that the beams have held through weather. And what he said, to nobody, to the roof, in the voice of a man closing a book he had enjoyed against every expectation, was:
 
 "Shorter than she feared."
 
-Katie came out of the curtained corner with her penance still to pay.
-
-*(The penance — what Father Doran laid on her, and how she paid it — is the author's to write, and sits here in the story's time.)*
-
-And when it was paid, however it was paid, she found the grey waiting for her.
+Katie came out of the curtained corner carrying the strangest penance ever ratified in that parish — the term of it her natural life, the first installment due at four o'clock — and it was there, in the side aisle, that she found the grey waiting for her.
 
 Sister Marie-Agnès stood in the side aisle with her hands folded and her face bare as winter, and she did not arrange linen, and she did not look away, and when she spoke it was low and straight through, a woman who had rehearsed this all night against a cell wall and meant to be done before her courage was.
 

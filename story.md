@@ -1728,3 +1728,45 @@ She let it sit exactly long enough to be understood as no tactic.
 "And the last thing, because you said it and it should not go unanswered." She looked at Katie — straight, bare, past flinching, a woman with nothing left to protect. "*My soul was never the one in peril.* No. It was not. I watched you the whole of this week — the letters, the boys, the man behind the rope — and I read the evidence backwards, because I was reading it through a gate on Aisquith Street. You were never Margaret, Katherine. And it was never you that needed saving from your life." The hands folded themselves away into the grey, and the winter face did the nearest thing to breaking it had done all morning, and held.
 
 "Margaret would have — " It stopped, the way it had to. "Be happy, Katherine. That's all. Be happy."
+
+---
+
+*Her turn (the author, verbatim):*
+
+> "I doubt your family knew what would happen to her there. The church is better at upholding lies about salvation than the devil himself. If I were you, I'd build a home for women where the girls can come and go as they please, as a refuge, focused on rehabilitation and healing, on helping women establish their independence, and not on breaking them into submission like stubborn colts. That, Sister, may be the only thing you can do to save your soul, and to honor Margaret." And with that, I leave to go find the girls.
+
+---
+
+Sister Marie-Agnès stood alone in the side aisle and watched the blue silk go down the nave — and of all the people in that church, she was the one equipped to know exactly what had just been done to her.
+
+She had been to the box ten thousand times. She knew a penance when she heard one assigned: named plain, priced to the sin, and impossible in precisely the way that makes a soul grow to fit it. *A house where they come and go as they please.* Twenty years of vocation had been spent hauling women toward gates; she had just been sentenced, by the borough's notorious woman, on her own church floor, to spend whatever remained building a door that only opened outward. And the first mercy in it — *I doubt your family knew* — had been handed to her unasked, which was more than she had permitted herself in two decades.
+
+"Yes," said Sister Marie-Agnès, aloud, to the empty aisle — and if anyone had asked her afterward to whom she had said it, the bride or the sister or God, she could not have divided the answer.
+
+Then she went back to her basins. And her hands, the six witnesses would report, were steady as instruments the rest of the day — and that evening, though nobody would know it for some while, she borrowed paper from the sacristy, and the fairest hand in Adams County wrote at the top of a clean sheet: *Rule the first. The door is not locked.*
+
+---
+
+And then the church turned itself toward four o'clock the way a field turns toward weather coming.
+
+They filtered in through the afternoon, the uninvited and the essential. Doc Sparrow, in a coat that had attended forty years of the county's occasions, took a pew at the middle distance and held his hat on his knee. Tad Pfoutz appeared in the doorway, scrubbed to an unprecedented shine by some mother-adjacent force, and installed himself where the exits were convenient and the view was good. And at the very back, just inside the doors, hat in his two hands, stood Ezekiel Freeman in his Sunday coat — come to see the digger married, and standing the whole of it, by his own choosing, at the door: and when Faolan arrived and saw him there, he crossed the whole church against all ceremony and shook his hand and said something low that made the big shoulders ease one inch, and that was the entire conversation, and it was enough.
+
+The groom took the rail at ten minutes to the hour, scrubbed — as ordered — past the elbow, in blues brushed to their best possibilities, black hair subdued by main force and already staging its counterattack. Beside him Dan Riordan stood best man with his patch squared and the pin-ring in his waistcoat pocket, guarded like the regimental colors. Behind the rope in the far corner, propped highest of all, Patrick Slattery watched the doors with his creek-water eyes and his face arranged, and led no applause this time, and made no sound at all — a man at a window, memorizing.
+
+Then Fanny — self-appointed, unopposed — gave some signal to the girl at the borrowed melodeon, and the doors opened, and the church rose as one congregation: the pews and the cots together, the boys hauling themselves up on elbows and one another, forty broken men upright for the length of an aisle.
+
+She came up it on Het's arm.
+
+Madame Hettie Duquesne, in black silk, terrible and magnificent, walking the bride the slow way past every cot like visiting royalty — and the bride in twenty years of dusk-blue New Orleans silk, black hair pinned with a tinker's currency, the fields of Gettysburg blue and white in her hands, and her face — her face doing what it did, which was everything, held level by main strength and a match-darkened mole.
+
+At the rail, Faolan Sloan watched her come, and did not perform anything at all. He had stopped talking entirely. He had the fourth silence on him — the pump, the keen, the ballad, and now this — and his eyes had gone all the way down to the further-back thing, standing at attention.
+
+Father Doran met them vested and ancient and glad, before an altar with the linen drying not ten feet away and the whole improbable parish of the war watching, and he did not hurry one syllable. The old rite went its way — the Latin where the Latin lives, the English where the people do — and the pin-ring came off Riordan's palm and was blessed, bent pin and all, with the same gravity Rome affords the gold of kings. And then the consent, which the Church asks plain, in the tongue of the parties, so that nobody standing in a hospital church in a bought dress or a mended arm could mistake what was being done:
+
+"Faolan Sloan." The old voice filled the church without effort; it had filled fields. "Wilt thou take Katherine, here present, for thy lawful wife, according to the rite of our holy mother the Church?"
+
+"I will," said Faolan — steady, carrying, no varnish on it at all. And then, in the hush after, soft enough to be deniable and clear enough for the front cots, the tinker in him added the codicil his people would have wanted witnessed: " — and the roads besides."
+
+Doran's eyebrow filed it under things formally unheard. And the old priest turned — vestments, gravel, forty held breaths, the whole gathered improbable family of what a war leaves lying around — to the bride.
+
+"Katherine O'Shea." The pierced-tin gentleness was in it now, out in the open air where the whole church could hear what the box had always known. "Wilt thou take Faolan, here present, for thy lawful husband, according to the rite of our holy mother the Church?"

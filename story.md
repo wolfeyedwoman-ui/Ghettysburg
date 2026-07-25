@@ -1577,13 +1577,15 @@ The tin held its little stars steady, and the old man on the far side of it was 
 
 *Her turn (the author, verbatim):*
 
-> "Well, I can tell you now, Father, that I've broken every commandment except thou shall not kill. Never killed a man, and that should count for something."
+> "Well, I can tell you now, Father, that I've broken every commandment except thou shall not kill. Never killed a man, and that should count for something. Given we're standing on a burial ground of murdered hundreds."
 
 ---
 
-The first laugh got out of him before he could bar the door on it — one short bark of gravel, quickly repented.
+The first laugh got out of him before he could bar the door on it — one short bark of gravel — and then the back half of her sentence arrived, and took the laugh's chair out from under it.
 
-"*Should count for something,*" he said, composing himself. "In this county, this summer, child, it very nearly counts for a distinction. There's generals can't say it." A rustle; the shape beyond the stars sat up straighter, and she heard the confessor put on the auditor. "But now you've made a claim of inventory in my box, and I'm obliged by the office to *check the stock*, for I suspect inflation. Every commandment, she says. We'll walk the shelf. Catholic numbering, mind — you were confirmed to it, you'll suffer it.
+"*Should count for something,*" he repeated, quiet. "*Given the ground.*" The tin held its stars; the old man was still a moment. "Child, you're after preachin' the sermon I've not found the courage to give off my own altar these three weeks. The grandest breakin' of the fifth commandment this continent ever witnessed was conducted in this parish, by the flower of two Christian nations — church-raised boys the most of them, blessed to the work by chaplains on the both sides, myself absolvin' them in job lots as they went up — and when it was done, the keepers of the commandments lay out there in the July sun in their thousands, and the men that ordered it will die old in feather beds with streets named for them. And this town — that sold the armies its flour comin' and goin', and will be sellin' tickets to the battlefield inside the year, mark me — this town holds its nose at *you*." A breath. "So aye, Katherine. It counts. In the true ledger of this summer it counts for more than I've authority to say aloud anywhere on earth but against this tin. Let no one tell you different, and that's not comfort, that's *doctrine*, whatever the committee makes of it.
+
+"However." A rustle; the shape beyond the stars sat up straighter, and she heard the confessor put on the auditor. "You've also just made a claim of inventory in my box, and I'm obliged by the office to *check the stock*, for I suspect inflation. Every commandment, she says. We'll walk the shelf. Catholic numbering, mind — you were confirmed to it, you'll suffer it.
 
 "The first: no gods before Him, no graven images. Have you ever once in your life, Katherine-called-Joan, carved yourself an idol? Bowed down before a golden calf? Poured libation to Baal in the yard?" A pause, precisely timed. "No. There's *one* clean, so, and two countin' the killin'. Your criminal record's collapsin' by the minute.
 

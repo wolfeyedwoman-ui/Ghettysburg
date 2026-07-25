@@ -1922,3 +1922,37 @@ His hand stayed on the latch, and did not lift it, and the gold went on going do
 "And I'll deal you one thing more, and then we'll go in and be danced off our feet." The latch lifted; the house's noise and light leaned out at them, supper and girls and a piano finding its courage; and he bent close, so it went to her and no further, the last quiet cargo of the walk. "That song's done thirty years at gravesides — it come to you at one and it's been true to its trainin' ever since. But if the seed sticks, a stór — " his hand, one second, light against the blue silk at her waist, " — then some evening next spring you'll sing it over a *cradle*, and the poor verse will finally get to do the work it was wrote for. And somewhere that Breton woman will feel the weight come off her song at last, and never know why. Songs wants their proper use, same as people.
 
 "Now — " and the grin came up final and full as the door swung to meet them, Het's silhouette already in it, the whole gold hive beyond, " — in with us, wife. We're expected."
+
+---
+
+*Her turn (the author, verbatim):*
+
+> "HELLOOOOO!!!!" She dances into the room with Faolan hooked on her arm, ready to party.
+
+---
+
+The house roared back.
+
+Six hours' notice and a Sunday against them, and the establishment had produced a wedding supper by the only method it knew — total mobilization: the parlor cleared to its boards for dancing, every lamp in the building lit and stationed, the long table hauled in from the kitchen and dressed in two cloths that didn't match and nobody cared; ham and fowl and a mountain of potatoes, pies of three allegiances, the good Monongahela standing open next to a crock of buttermilk for the temperate, of whom there were none; and in the center, lopsided and magnificent, a cake Fanny and the youngest girl had built that afternoon with more ambition than architecture, iced in sugar begged off three neighbors who would deny the transaction to their graves.
+
+The bride danced in hollering and the room came up around the married pair like water round a stone gone the other way — lifting. The girls swarmed. The piano, under the hands of the girl who played it best, abandoned hymnwork forever and found a reel. And the party that followed was the kind the town would lie about having attended for thirty years.
+
+The toasts came early, while the glasses could still be trusted. Het rose first, terrible in her churchgoing black with her glass at the exact angle of artillery, surveyed the room — the girls, the soldiers, the bride, the whole assembled contraband family — and delivered the entire speech she had budgeted: "To the Sloans. The house has seen every kind of man walk through that door. It took a tinker to walk one of us *out* the front of it in daylight." She drank; the room detonated. Riordan followed, listing gently, patch pushed up, and gave the best-man's toast of a one-eyed Cork man three glasses deep into his captain's whiskey: "I've known this man two years, through Fredericksburg and worse, and I'll say of him what's said of no soldier livin' — " a wobble, a recovery, the glass aloft, " — his *aim* was always grand. Look at what he's after hittin'." And Faolan stood, waited out the roar, and raised his glass not to his bride but around the whole room, slow, the fair-day voice gone soft at its center: "To both sides of the church — assembled entire out of what a war leaves lyin' around. My people says families weds families. Look at the *families* of us." And nobody's glass came down dry.
+
+Doc Sparrow arrived at nine with a crate labeled TONIC in his own hand, containing champagne — actual champagne, provenance unexamined by mutual agreement — and was received like a relieving column. And when the reels got properly going, the night produced its two miracles in short order: Faolan Sloan dancing — really dancing, the road's own stepping, quick and light and showing off now, his boot-heels talking to the floorboards while the room clapped time and his wife spun on his arm with her black hair shaking loose of its tinker pins one by one — and then, at the urging of the entire company and to the astonishment of the ages, Madame Hettie Duquesne standing up with Doc Sparrow for one stately measure, the two of them grave and upright and precise as a treaty, while the whole house held its breath and Fanny wept again on general principles.
+
+(The two soldiers present were, technically, criminals after curfew — except that Father Doran had pressed passes on them at the church door, wrote in his own hand: *Detained on sacramental duties until reveille*, signed with a flourish and the observation that it was even true.)
+
+It was deep in the evening — the cake demolished, the piano resting, the party at that golden stage where it burns low and hot like banked coal — when the knock came at the back door.
+
+The kitchen was empty and lamplit, the party's roar coming warm through the wall. Faolan answered it — and stood back at once, the way you stand back for something you've been expecting without knowing its hour. Ezekiel Freeman filled the doorway in his Sunday coat, hat in his two hands, come — he said it plainly, quietly — to pay his respects to the bride, and not to stay; a man who knew exactly what the town made of a Black man at a white wedding party, and had come to the kitchen door of his own choosing, after dark, all the same.
+
+Faolan didn't argue the parlor with him. He did something else: he stepped out, threaded the party, and came back with Katie — flushed from dancing, pins half gone, the blue silk bright in the lamplight — and he shut the kitchen door behind her, and the party went to a murmur beyond it, and the three of them stood in the quiet with the lamp.
+
+"Zeke," said Faolan, low. "You know what she carries. It come from the man behind the rope, paid in full, and it travels by memory only — his terms — and it's been waitin' on you." He moved to the door, and set his back against it, watching the latch — a tinker on guard in his own wedding house. "There's no third soul here, and there'll be none."
+
+Ezekiel Freeman had gone very still, the hat gripped in his two big hands, his eyes on Katie with the terrible bare patience of a man who has been walking roads with a lantern for three weeks — and now stands at the last fence of them.
+
+Faolan nodded to his wife, once, gentle, the way Doran nodded at the rail.
+
+"Say it to him as it was said to you, a stór. Word for word."

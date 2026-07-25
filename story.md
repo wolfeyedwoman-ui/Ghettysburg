@@ -1607,6 +1607,28 @@ It was the helpless one — the wheezing gravel-slide the six witnesses would sw
 
 "What is it you came in here to say?"
 
+---
+
+*Her turn (the author, verbatim):*
+
+> "I have knelt to 'false idols,' Father. I still hold room in my heart for the old gods, the ones who upheld women instead of enslaving them. The Catholic church wrote Brigid in as one of their own."
+
+---
+
+And now the tin was silent a long, long time — and this, though nobody in the pews could know it, was the quiet the six witnesses would report: the weighted middle stretch, the stillness with gravity in it, forty men's breathing audible in a church while an old priest sat with a thing he had been handed and declined to drop.
+
+When he finally spoke, it was slower than anything he'd said all morning, and it had stopped being the auditor entirely.
+
+"Well," said Father Doran. "There's the guard's perimeter walked through, so. And I'll deal with you as straight as you've dealt, for that's the country's law in here, and it cuts my direction too.
+
+"First, the history, since you've raised it, and I'll not perjure myself in my own box: you're *right*. We wrote her in. The fire at Kildare burned a thousand years with nuns tendin' it, and whose fire it was *first* is a question I have never once put to them ladies, for I was reared by a mother that wove the Brigid cross fresh every Imbolc eve and hung it over the door against fire and want, and she'd have taken the tongs to any priest that called her a pagan, and she'd have been *right*. Half of Ireland does its prayin' at wells older than the parish, with a saint's name painted fresh over the door of it, and God in His patience has said nothing. So we'll have no theatrical horror from me on the subject. The Church in Ireland didn't conquer the old faith, child. It *married* it — and like many a match, there's argument yet about whose name went on the register.
+
+"Second, the charge itself. Mind now what you actually confessed, for I heard it twice and it wasn't idolatry either time." The gravel came down to its floor. "You said: room in your heart for the ones *who upheld women instead of enslavin' them*. Katherine. Joan. That's not the confession of a pagan. That's the confession of a woman with a *grievance* — and the grievance is *just*, and I'd know, for I've spent this week watchin' my own Church's mercy nearly ship you to a laundry in Philadelphia. You've not turned from God, child. You've turned from the *household staff* — and between the tin and the two of us, the staff has earned it. But here's the thing I'd have you carry out of this box, and it's the heart of the whole matter: if what you've kept a room for, all these years, is *whoever upholds women* — then I've news for you about who built the room. That hunger in you for a God that doesn't despise you — child, that hunger *is* Him. Knockin' on His own door from the inside.
+
+"And third." And here something dry and almost wondering came up through the old voice, a man turning a coin and finding it two-faced. "Your contraband goddess. I'll tell you a thing about Brigid you maybe know and maybe don't. She keeps the three fires, the old ones and the nuns both agreed on that much: the hearth. The *forge*. And the makin' of poems." He let each one land. "Healin'. Smithcraft. Song. And here's yourself: a woman that dressed a tinsmith's wound on Friday with hands your grandda trained, that's been trading verses across kitchen tables all week — and that's marryin' a *smith with a song in his mouth* at four o'clock this day, at my rail, in my church." The pause was one breath long, and the dryness in it could have struck a match. "If she's a false idol, Katherine, she's takin' *remarkable* personal interest in your case. Were I you I'd be slower to hand her over to the authorities.
+
+"So the box declines the idolatry as charged — but I'll not wave the whole matter through, for there's one verb left standin' between doctrine and no-harm-done, and only you can conjugate it. Worship's a verb, child. So tell me plain, and then we're done with the shelf entire." The pierced stars held their little constellations, patient. "When you kneel to Brigid — in whatever hedge or heart-room you keep her — *what is it you ask her for?*"
+
 The reports, assembled afterward from six witnesses under Fanny's cross-examination, established the following record. Duration: longer than any confession in the observed history of the parish — "three rosaries, if I'd been saying them," per the girl detailed to time it. Audible incidents: laughter — the *priest's* — twice; once brief, once entirely helpless, a wheezing gravel-slide that went on some seconds and was followed by an authoritative thump, as of a fist brought down on a knee. And then, for a long middle stretch: nothing. A quiet so complete the congregation's forty boys could be heard breathing, a quiet with weight in it, the kind the house knew from doors it did not knock on. And then the murmur again, low and level, the box doing its oldest work.
 
 Father Doran came out with his face composed entire — not a blush on him, and Fanny paid out the stakes with heavy sighs — but the six witnesses agreed unanimously on the one detail: the old man stopped, mid-passage, and looked up at the roof of his church a long moment, the way a man checks that the beams have held through weather. And what he said, to nobody, to the roof, in the voice of a man closing a book he had enjoyed against every expectation, was:

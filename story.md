@@ -1577,7 +1577,7 @@ The tin held its little stars steady, and the old man on the far side of it was 
 
 *Her turn (the author, verbatim):*
 
-> "Well, I can tell you now, Father, that I've broken every commandment except thou shall not kill. Never killed a man, and that should count for something. Given we're standing on a burial ground of murdered hundreds."
+> "Well, I can tell you now, Father, that I've broken every commandment except thou shall not kill. Never killed a man, and that should count for something. Given we're standing on a burial ground of murdered thousands."
 
 ---
 

@@ -1884,3 +1884,23 @@ Then — because a sung question deserves a sung answer, and his people had neve
 *beidh tagairt ar ghrian go brách...*"
 
 — of that night in Bethlehem, the sun itself will tell forever — and so the Sloans came down Baltimore Street to the house with the two drowned-cousin languages braiding over their heads, Breton asking and Irish answering, Christmas walking home through July, and behind them the girls humming what they couldn't pronounce, and the town at its doorways hearing — whatever it decided it was hearing — and every hat, by the end of the street, off entirely.
+
+---
+
+*Her turn (the author, verbatim):*
+
+> "I don't know the meaning of the words. I just know the sound of them. I heard a woman sing it at a gravesite once long ago, and I remembered the shape of them."
+
+---
+
+That stopped him deeper than the verse had.
+
+He walked a few paces in silence — a rare enough event that the procession behind them noted it — and when he spoke it was slow, a man handling something he'd just understood the weight of.
+
+"You carried it by *shape*." He shook his head. "Twenty years, maybe more, a song in a tongue you never had, off a stranger's mouth at a graveside — carried whole, every syllable in its place, the way you carried Patrick's road home behind your eyes. Katie. That's the old trade, the deepest one — the women that kept the songs when the meanin' was burnt out from under them, that kept the *shape* safe till someone come along could open it. My mother carried airs whose Irish she only half-owned; her mother carried older ones nobody owned at all. Songs travels steerage, same as the rest of us, a stór. They ride in whoever'll carry them, and they sing where they land." He looked at her sidelong, and the fairground was entirely gone; this was the other register, the beads-and-messages one. "And mark what you're after tellin' me. You didn't choose that verse. You couldn't have — you never knew the angels was in it, nor the child, nor the news. You only knew the *sound* wanted out of you, today, on this street, walkin' home from your own weddin'." He blessed himself, quick and workmanlike, the way other men roll a sleeve. "That's the dead lendin' words again — third time this week, and I've stopped countin' coincidence; me mother'd have stopped at the first. Some woman at a graveside long ago is after sendin' you up the aisle with the exact cargo, and neither of you read the manifest. The verse knew its day, Katie. The verse *waited* for it.
+
+"And the graveside itself — God above, think what you witnessed and carried off not knowin'." His voice dropped, walking slower now, the house coming up ahead of them in the gold. "A woman stood over a grave and sang the *birth*-news. Not a keen — the angels' announcement. Whoever she buried, she sang them *born*, a stór — born for you, a blessed child, the whole nativity of it, straight down into the ground like plantin'. That's the bravest theology I ever heard tell of; the Church'd take notes if it had the nerve. And d'ye see it — you and that woman and me is all the one trade off different ends. I tell my dead their county, so they can find their road home. She told hers where they were *goin'*. And you — " he raised her hand and kissed the pin-ring, walking, " — you carried her ticket twenty years without once lookin' at it, and spent it on the right day.
+
+"And Katie — the not-knowin' never weakened it one grain, so let no scruple start up in you. Half of Ireland prays in Latin it doesn't have, and the prayers arrives regardless. The words knew their business." The grin came home then, soft at its edges, as the gate rose up before them and the house beyond it stood glowing — every window lit, the smell of a supper the girls must have run ahead to start, Het's silhouette already commanding something in the hall, the whole hive turned gold. He put his hand on the gate, and paused, and looked at his wife in the last of the light.
+
+"In with us, so, Mrs. Sloan. There's a supper wants eatin', a house wants dancin', and at full dark — " the latch lifted under his hand, " — there's a budget in Het's garden shed with a canvas over it, and the second weddin' of the day."

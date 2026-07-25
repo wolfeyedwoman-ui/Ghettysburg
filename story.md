@@ -1770,3 +1770,31 @@ Father Doran met them vested and ancient and glad, before an altar with the line
 Doran's eyebrow filed it under things formally unheard. And the old priest turned — vestments, gravel, forty held breaths, the whole gathered improbable family of what a war leaves lying around — to the bride.
 
 "Katherine O'Shea." The pierced-tin gentleness was in it now, out in the open air where the whole church could hear what the box had always known. "Wilt thou take Faolan, here present, for thy lawful husband, according to the rite of our holy mother the Church?"
+
+---
+
+*Her turn (the author, verbatim):*
+
+> She hesitates, looks up at Faolan's face, with pity, and with awe, and with fear. "Are you sure? Are you sure you want to bind yourself to me this way? I'm not an easy woman to love."
+
+---
+
+The church held its forty breaths. Father Doran, who could have hurried, did not — the old man simply clasped his hands over the book and examined the roof of his church with vast patience, a priest who knew free consent when he was watching it being earned.
+
+Faolan took her two hands, bouquet and all, and he did not perform for the room. He answered her the way he'd answered her across every table of their acquaintance — quiet first, for her; carrying at the last, for the record.
+
+"The last stone," he said softly. "Thrown at your own window, at the rail itself, before forty witnesses, a madam, six bridesmaids, a Louisiana Tiger, and God. You're consistent, a stór. The whole world must give you that: consistent to the door of the church." The grin came up one degree, and went down again, and what was under it was the further-back thing entire, standing in the open at last.
+
+"*Am I sure.* Katie. Mind who it is you're askin'. I'm a dealer's son of a dealin' people, and we don't deal in *sure* — sure is for men that never looked at the teeth. We deal in *knowin'*. And I looked. You *sang* me the teeth the first night of my life with you — the one dealer in all America that sings the fault before the sale — and I told you at that table no man recovers off that, and I'm two days married to the truth of it already, whatever the register says.
+
+"And *easy*." He shook his head, slow, wondering at the word. "Woman, look at what you're after marryin'. A roadside tinker in a brushed-borrowed coat, thirteen dollars the month, a war holdin' the mortgage on the rest. My people has never once in eight hundred years taken an easy road. The easy roads has tolls on them, and settled men, and no music in the hedges. We was built for the other kind — the long ones, the rained-on ones, the ones worth walkin' *because* they cost. I'd not know what to do with an easy woman, Katie O'Shea. I'd lose her at the first fair.
+
+"So here's my answer, the whole of it, and then you'll give the priest his, for the poor man's held his dinner for us." His hands tightened on hers, the smithing one and the mended one, the anchor grip, and now the voice carried — to the front cots, to the rope, to the door, deniable to no one. "I was sure at the pump. I was sure at the ballad. I was sure when you answered your door bare to the whole United States Army, and surer when you walked out into a curfew to put a question to a sergeant, and I am standin' on this floor now as sure as ever a Traveller stood on anything — and mind, we're a people that's been sure of *nothing* since the Flood, so you're gettin' the entire family reserve. You say you're not an easy woman to love." One beat, the church silent as the trenches. "You're an *easy* woman to love, Katie. Easiest work I ever done — it does itself, like fallin', like singin'. You're only a hard woman to *convince* of it. And I've the rest of me life for the convincin', I've named it me trade, and I'd not swap the position for a colonel's commission and the horse besides."
+
+He turned his head, without letting go of her hands, to the old man at the book.
+
+"Ask her again, Father. She's done pricin' me. I watched it finish."
+
+And Father Doran, gravel gone gentle as it ever went in public, gave the smallest nod in the history of his office — and asked it again, the same words, out into a church where Fanny was weeping without any management whatever, and Het stood glittering and still, and behind the rope a Tiger watched with his face arranged, and forty broken boys leaned off their bolsters toward the rail like grass toward light:
+
+"Katherine O'Shea. Wilt thou take Faolan, here present, for thy lawful husband, according to the rite of our holy mother the Church?"

@@ -1573,6 +1573,38 @@ The tin held its little stars steady, and the old man on the far side of it was 
 
 "So." The vestments rustled; the shape beyond the stars sat back, banked and patient still. "That's the main weight sorted, by your own word — *the main thing*, you said, and I marked it. Which tells me the pack's not empty." The old voice held the door open, kind and level and going nowhere. "Set down the next one, Joan. Or tell me that was the load entire — and then we'll speak of what's owed." A beat, and the gravel went one shade lower. "And of what's owed *you*. For there's two columns in every account, child, and I've heard enough of yours to know the other one's long."
 
+---
+
+*Her turn (the author, verbatim):*
+
+> "Well, I can tell you now, Father, that I've broken every commandment except thou shall not kill. Never killed a man, and that should count for something."
+
+---
+
+The first laugh got out of him before he could bar the door on it — one short bark of gravel, quickly repented.
+
+"*Should count for something,*" he said, composing himself. "In this county, this summer, child, it very nearly counts for a distinction. There's generals can't say it." A rustle; the shape beyond the stars sat up straighter, and she heard the confessor put on the auditor. "But now you've made a claim of inventory in my box, and I'm obliged by the office to *check the stock*, for I suspect inflation. Every commandment, she says. We'll walk the shelf. Catholic numbering, mind — you were confirmed to it, you'll suffer it.
+
+"The first: no gods before Him, no graven images. Have you ever once in your life, Katherine-called-Joan, carved yourself an idol? Bowed down before a golden calf? Poured libation to Baal in the yard?" A pause, precisely timed. "No. There's *one* clean, so, and two countin' the killin'. Your criminal record's collapsin' by the minute.
+
+"The Holy Name: broke hourly, I'd wager, and twice at cards. Granted without argument. The Sabbath: Sunday bein' your trade's market day, we'll mark it broke — with commentary attached, for the men that climbed the stairs broke it comin' *to* you, and half of them sang in choirs that same mornin'. Father and mother: we'll leave that one lyin' where the exile lies; it's been spoke to already and it keeps.
+
+"Adultery — " the dryness went absolute, " — by the wagonload; stipulated; move along. Theft: I'll assume small denominations and lean seasons, and God's counted the seasons. False witness, now — mind the wording, child; it means the dock, not the parlor. Have you ever once sworn a neighbor into ruin before a court? Gossip's the venial cousin. No? *Clean.* Three.
+
+"Which brings us to the covetin's, the ninth and tenth, and here — " and something was already going wrong in the old voice, a tremor of structural failure, " — here I must inform you, child, as your confessor and a doctor of these matters, that in strict point of law it is the *borough* does the covetin' and yourself that is coveted-*against* — you may in fact be the least covetous and the most coveted-against soul in the county of Adams, you're the *object* of the commandment, child, not the — "
+
+And the old man went.
+
+It was the helpless one — the wheezing gravel-slide the six witnesses would swear to, on and on past all dignity, and at the summit of it the *thump*, an authoritative fist brought down on an old knee, the sound of a man beating his own machinery back into service. It took him some while. When he came back, his breathing had years off it.
+
+"God forgive me," said Father Doran, frankly, to the tin. "I have not laughed in this box since before Sumter, and I'd forgot the seat rocks.
+
+"So. The audited record of the terrible Katherine O'Shea, breaker of the whole Decalogue." He totted it like a grocer. "The Name, the Sabbath, adultery in commercial quantities, theft in lean seasons, and the fourth left lyin' by the exile. Four and a half of the ten, child. You're no scourge of the tablets. You're a workin' woman with a bad press agent — and the agent is *yourself*, and it's the same trick as the empty conscience, so I'll name it the once and be done: you would sooner stand convicted whole than pitied partial. I understand the preference. I even respect it. But the box deals in weights, not in poses, and the inflation is *declined*.
+
+"Now." The laughter drained out of the gravel by degrees, the way water leaves a lock, and what was left underneath was level and very quiet, and it had been waiting the whole time. "The audit's done, and the laughin's done, and it did us both good, and none of it was the reason you knelt down. I've kept this box thirty years, Joan. I know the sound of jokes walkin' *guard*. They've been pacin' a perimeter around something the whole of this confession — smart in step, rifles shouldered, and something inside the ring of them that they're minded no one should come at." The vestments settled. The pierced stars held still. "The last weight. The true one. Take your time, child — the tin's in no hurry, and neither's God, and the weddin' will wait on the both of them.
+
+"What is it you came in here to say?"
+
 The reports, assembled afterward from six witnesses under Fanny's cross-examination, established the following record. Duration: longer than any confession in the observed history of the parish — "three rosaries, if I'd been saying them," per the girl detailed to time it. Audible incidents: laughter — the *priest's* — twice; once brief, once entirely helpless, a wheezing gravel-slide that went on some seconds and was followed by an authoritative thump, as of a fist brought down on a knee. And then, for a long middle stretch: nothing. A quiet so complete the congregation's forty boys could be heard breathing, a quiet with weight in it, the kind the house knew from doors it did not knock on. And then the murmur again, low and level, the box doing its oldest work.
 
 Father Doran came out with his face composed entire — not a blush on him, and Fanny paid out the stakes with heavy sighs — but the six witnesses agreed unanimously on the one detail: the old man stopped, mid-passage, and looked up at the roof of his church a long moment, the way a man checks that the beams have held through weather. And what he said, to nobody, to the roof, in the voice of a man closing a book he had enjoyed against every expectation, was:

@@ -1675,6 +1675,16 @@ The stars in the tin held still. Somewhere out in the ward, a man coughed, and f
 
 "There," said Father Doran, gravel gone soft as it ever went, the ceremony folded away. "Shorter than you feared. It always is." The vestments gathered themselves; the shape beyond the screen rose, an old man's knees announcing the labor of it. "Now get up off yours, Mrs. Sloan-that-shall-be. Go and pay your penance the rest of your life — and you can start it at my rail at four o'clock, for I can think of no properer first installment on a life of your own than the one you chose yourself." A last dry rustle, from the far side of everything. "Go in peace, Joan. And God go with the both of you — He's been tryin' to keep up with you all week."
 
+---
+
+*Her turn (the author, verbatim):*
+
+> She smiles, nods, and leaves.
+
+---
+
+The smile and the nod went where they were owed — to the shape beyond the pierced stars, the old man and his tin constellations, the last and easiest payment of the whole morning's accounting — and then she rose off her knees, and put back the curtain, and walked out of the one country in Adams County where the law had never once been broken, into the daylight of the church.
+
 The reports, assembled afterward from six witnesses under Fanny's cross-examination, established the following record. Duration: longer than any confession in the observed history of the parish — "three rosaries, if I'd been saying them," per the girl detailed to time it. Audible incidents: laughter — the *priest's* — twice; once brief, once entirely helpless, a wheezing gravel-slide that went on some seconds and was followed by an authoritative thump, as of a fist brought down on a knee. And then, for a long middle stretch: nothing. A quiet so complete the congregation's forty boys could be heard breathing, a quiet with weight in it, the kind the house knew from doors it did not knock on. And then the murmur again, low and level, the box doing its oldest work.
 
 Father Doran came out with his face composed entire — not a blush on him, and Fanny paid out the stakes with heavy sighs — but the six witnesses agreed unanimously on the one detail: the old man stopped, mid-passage, and looked up at the roof of his church a long moment, the way a man checks that the beams have held through weather. And what he said, to nobody, to the roof, in the voice of a man closing a book he had enjoyed against every expectation, was:
@@ -1694,37 +1704,3 @@ Sister Marie-Agnès stood in the side aisle with her hands folded and her face b
 She looked, once, at the Lady altar, and then at the bride in blue, and the last of it came out barely above a breath:
 
 "Margaret would have — " It stopped. The hands folded themselves away into the grey. "Be happy, Katherine. That's all. Be happy."
-
----
-
-*Her turn (the author, verbatim):*
-
-> She smiles, nods, and leaves.
-
----
-
-It was more than the Sister had asked for, and both of them knew the arithmetic of it — she had asked for nothing, and been given a smile and the small grave nod that respectable women pay each other like a toll. Paid to *her*. Sister Marie-Agnès bowed her head as the blue silk passed, the way she bowed it at the altar, and when she straightened and went back to her basins, the six witnesses in the pews — who missed nothing that day — would swear to the last detail of the morning's record: the Sister's hands, wringing the linen, were steady again.
-
-And then the church turned itself toward four o'clock the way a field turns toward weather coming.
-
-They filtered in through the afternoon, the uninvited and the essential. Doc Sparrow, in a coat that had attended forty years of the county's occasions, took a pew at the middle distance and held his hat on his knee. Tad Pfoutz appeared in the doorway, scrubbed to an unprecedented shine by some mother-adjacent force, and installed himself where the exits were convenient and the view was good. And at the very back, just inside the doors, hat in his two hands, stood Ezekiel Freeman in his Sunday coat — come to see the digger married, and standing the whole of it, by his own choosing, at the door: and when Faolan arrived and saw him there, he crossed the whole church against all ceremony and shook his hand and said something low that made the big shoulders ease one inch, and that was the entire conversation, and it was enough.
-
-The groom took the rail at ten minutes to the hour, scrubbed — as ordered — past the elbow, in blues brushed to their best possibilities, black hair subdued by main force and already staging its counterattack. Beside him Dan Riordan stood best man with his patch squared and the pin-ring in his waistcoat pocket, guarded like the regimental colors. Behind the rope in the far corner, propped highest of all, Patrick Slattery watched the doors with his creek-water eyes and his face arranged, and led no applause this time, and made no sound at all — a man at a window, memorizing.
-
-Then Fanny — self-appointed, unopposed — gave some signal to the girl at the borrowed melodeon, and the doors opened, and the church rose as one congregation: the pews and the cots together, the boys hauling themselves up on elbows and one another, forty broken men upright for the length of an aisle.
-
-She came up it on Het's arm.
-
-Madame Hettie Duquesne, in black silk, terrible and magnificent, walking the bride the slow way past every cot like visiting royalty — and the bride in twenty years of dusk-blue New Orleans silk, black hair pinned with a tinker's currency, the fields of Gettysburg blue and white in her hands, and her face — her face doing what it did, which was everything, held level by main strength and a match-darkened mole.
-
-At the rail, Faolan Sloan watched her come, and did not perform anything at all. He had stopped talking entirely. He had the fourth silence on him — the pump, the keen, the ballad, and now this — and his eyes had gone all the way down to the further-back thing, standing at attention.
-
-Father Doran met them vested and ancient and glad, before an altar with the linen drying not ten feet away and the whole improbable parish of the war watching, and he did not hurry one syllable. The old rite went its way — the Latin where the Latin lives, the English where the people do — and the pin-ring came off Riordan's palm and was blessed, bent pin and all, with the same gravity Rome affords the gold of kings. And then the consent, which the Church asks plain, in the tongue of the parties, so that nobody standing in a hospital church in a bought dress or a mended arm could mistake what was being done:
-
-"Faolan Sloan." The old voice filled the church without effort; it had filled fields. "Wilt thou take Katherine, here present, for thy lawful wife, according to the rite of our holy mother the Church?"
-
-"I will," said Faolan — steady, carrying, no varnish on it at all. And then, in the hush after, soft enough to be deniable and clear enough for the front cots, the tinker in him added the codicil his people would have wanted witnessed: " — and the roads besides."
-
-Doran's eyebrow filed it under things formally unheard. And the old priest turned — vestments, gravel, forty held breaths, the whole gathered improbable family of what a war leaves lying around — to the bride.
-
-"Katherine O'Shea." The pierced-tin gentleness was in it now, out in the open air where the whole church could hear what the box had always known. "Wilt thou take Faolan, here present, for thy lawful husband, according to the rite of our holy mother the Church?"

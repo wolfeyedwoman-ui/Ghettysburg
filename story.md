@@ -1798,3 +1798,33 @@ He turned his head, without letting go of her hands, to the old man at the book.
 And Father Doran, gravel gone gentle as it ever went in public, gave the smallest nod in the history of his office — and asked it again, the same words, out into a church where Fanny was weeping without any management whatever, and Het stood glittering and still, and behind the rope a Tiger watched with his face arranged, and forty broken boys leaned off their bolsters toward the rail like grass toward light:
 
 "Katherine O'Shea. Wilt thou take Faolan, here present, for thy lawful husband, according to the rite of our holy mother the Church?"
+
+---
+
+*Her turn (the author, verbatim):*
+
+> "I do." She smiles through tearstained eyes, still terrified.
+
+---
+
+Two words, and the war lost the afternoon.
+
+Father Doran did not make her say it twice. The pin-ring came off Riordan's palm — surrendered that morning for the blessing, guarded since like the colors — and Faolan took it and slid it home over her knuckle for the second time in three days, only now with the whole apparatus of Heaven co-signing: "*With this ring I thee wed*," the old formula, said in his voice with no varnish and the fada in every word that owned one. And the old priest raised his hand over the two bowed heads, and joined them in the Latin where the Latin lives — "*Ego coniungo vos in matrimonium, in nomine Patris, et Filii, et Spiritus Sancti*" — and set the seal on it in the English where the people do:
+
+"What God hath joined together, let no man put asunder." A pause. The gravel lifted, and went out over their heads to the cots, to the rows, to the forty. "Three weeks," said Father Doran to his congregation, "I have done nothing in this building but *finish* things. You know it. You've watched me at it; I've done it over some of your own beds." The old hand stayed up, steady over the bride and the groom. "This is the first thing started. Look at it well, boys. *This is what it's all supposed to be for.*"
+
+And the church came apart.
+
+It was not applause as parlors know it. It was the applause of the broken: crutches hammered on floorboards, tin cups on cot-rails, the thin high yip of a Wisconsin boy with no other volume left in him, forty men spending strength they did not have and would not miss until evening and did not care. Fanny had progressed entirely beyond management and was being held up by two bridesmaids in a state herself. Het stood glittering, straight as her own account-book — and one line of silver got past the ledger at last and went down her cheek unremarked, and this time no technicality excused her, and she let it stand. At the middle distance Doc Sparrow beat his hat softly against his knee like a drum with forty years of the county in it. In the doorway Ezekiel Freeman smiled down at his own turning hat. Tad Pfoutz, from his exit-adjacent post, informed the borough at large that it was worth a dollar.
+
+They signed the register in the sacristy with the noise still coming through the wall. And here the story's oldest wound closed without a sound: the bride took the pen, and in the elegant hand her father had taught the greenhorns of three cities, wrote her own name new — *Katherine Sloan* — the first writing of it in the history of the world. A fair hand had written her into the provost's trouble. Her own fair hand wrote her out, in a church book that would outlive the writ, the committee, the war, and everyone then living. Below it, Het signed *Henriette Duquesne* in full, with terrible dignity. And Corporal Daniel Riordan, witness, signed his own name, in his own hand, honestly — which for Riordan was a novelty bordering on a second sacrament, and Doran blessed the pen afterward on the grounds it had earned it.
+
+Then the doors, and the gold of five o'clock lying the length of High Street, and the recessional of the whole improbable outfit out into it — and as the bride and groom came down the hospital aisle between the hammering crutches, a voice rose from behind the rope in the far corner. Patrick Slattery, propped highest of all, had uncapped the flask at last — the rain itself, willed back filled — and held it up to the two of them at the full stretch of his wharf-hand arm, and gave the road's own blessing across the ward in the tongue both roads shared:
+
+"*Go n-éirí an bóthar libh!*" — may the road rise with the both of you — and then, dry as the whole month of August, as the doors took them: "And yous owes me a dance. I'll collect."
+
+Outside, the evening was beginning its long gold business over the ridges, and the town stood about its doorways in its Sunday clothes not knowing what to do with its hats, and did everything, again. The procession reformed around the married pair by instinct — the girls, the madam, the one-eyed corporal, the boy angling for supper, the whole family assembled out of what a war leaves lying around — to walk the Sloans home down Baltimore Street in the sight of everyone.
+
+And at the head of it, Faolan Sloan leaned to his wife's ear — his wife's; the word had law under it now, and he was visibly not yet done tasting it — and said, low, for her and no record:
+
+"One weddin' down, Mrs. Sloan. The road's is at dark — and I've built you a budget the like of which no tinker ever jumped." The grin came up, bright as minted silver, five days from a lime-stinking pump and all the way home. "Wait'll you see what I made it out of."

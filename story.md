@@ -1629,6 +1629,26 @@ When he finally spoke, it was slower than anything he'd said all morning, and it
 
 "So the box declines the idolatry as charged — but I'll not wave the whole matter through, for there's one verb left standin' between doctrine and no-harm-done, and only you can conjugate it. Worship's a verb, child. So tell me plain, and then we're done with the shelf entire." The pierced stars held their little constellations, patient. "When you kneel to Brigid — in whatever hedge or heart-room you keep her — *what is it you ask her for?*"
 
+---
+
+*Her turn (the author, verbatim):*
+
+> "For guidance, for freedom, for wonder, and for love."
+
+---
+
+She heard the breath go out of the old man — long, slow, through the nose, the sound of a customs officer opening the last suspicious crate and finding linen.
+
+"*Guidance. Freedom. Wonder. Love.*" He said the four of them over like a man counting change and finding it honest. "Child. Do you know what you've just recited to me? That is a *litany*. That's not worship of a rival — that's the four oldest petitions in the human throat, and there's not one item of contraband in the cargo. Only the shipping label was wrote different." The gravel walked through them, one by one, unhurried. "Guidance — that's the Spirit's own department, child; He's had the desk since Pentecost. Freedom — Katherine, the Lord announced His whole ministry off a jailbreak text: *liberty to captives*, it's in Isaiah and He read it out loud in the synagogue to open His career. You've been petitionin' the manifesto itself. Wonder — that's the poets' fire, and we've established whose grate that burns in and that she's *canonized*. And love." A pause, one beat, bedrock. "The last epistle of John, child, settles the address on that one for all time: *God is love.* Not God approves of it. Not God dispenses it. *Is.* You've spent your years knockin' on four doors of the one house, and I'll tell you what the box concludes, and it concludes it with relief and no small envy of your directness: you've been *praying*, Joan. The whole time. You'd only the address wrong by one door — and in this Church, when a soul does that, we don't call it idolatry." The dry warmth came all the way up. "We call it *askin' a saint*, and we've built side-altars for less.
+
+"So. The shelf is walked, the load is down, and the account is heard entire." The vestments gathered; she heard the old man straighten, the confessor coming to the last of his offices, and the voice found a formality it had not used all morning — not cold; *ceremonial*, the box's own high grammar. "There remains the penance, and then what follows the penance. And here I'll do a thing I do maybe once in five years, so mark it." A pause. "I've sat with your account the length of this confession, and I know what I *could* lay on you — but you're a dealer's daughter and a dealer's bride by four o'clock, and there's no sentence I could pass would teach you the price of a thing better than your own eye prices it. So I put it to you, Katherine-called-Joan, as the box's last question:
+
+"*Name your own penance.*
+
+"Propose it to me now, out of your own accounting — what you judge is owed, and to whom, and how you'd pay it. And mind — " and the old dryness came through the pierced stars one final time, level as a spirit-bubble, " — I retain the right of veto entire. You've a documented habit of over-sentencin' yourself; the whole morning's been one long appeal against your own verdicts. So whatever you lay on your own back, child, I'll be checkin' it for inflation before I ratify. Go on, now.
+
+"What do you owe, and how will you pay it?"
+
 The reports, assembled afterward from six witnesses under Fanny's cross-examination, established the following record. Duration: longer than any confession in the observed history of the parish — "three rosaries, if I'd been saying them," per the girl detailed to time it. Audible incidents: laughter — the *priest's* — twice; once brief, once entirely helpless, a wheezing gravel-slide that went on some seconds and was followed by an authoritative thump, as of a fist brought down on a knee. And then, for a long middle stretch: nothing. A quiet so complete the congregation's forty boys could be heard breathing, a quiet with weight in it, the kind the house knew from doors it did not knock on. And then the murmur again, low and level, the box doing its oldest work.
 
 Father Doran came out with his face composed entire — not a blush on him, and Fanny paid out the stakes with heavy sighs — but the six witnesses agreed unanimously on the one detail: the old man stopped, mid-passage, and looked up at the roof of his church a long moment, the way a man checks that the beams have held through weather. And what he said, to nobody, to the roof, in the voice of a man closing a book he had enjoyed against every expectation, was:

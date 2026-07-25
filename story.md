@@ -1828,3 +1828,28 @@ Outside, the evening was beginning its long gold business over the ridges, and t
 And at the head of it, Faolan Sloan leaned to his wife's ear — his wife's; the word had law under it now, and he was visibly not yet done tasting it — and said, low, for her and no record:
 
 "One weddin' down, Mrs. Sloan. The road's is at dark — and I've built you a budget the like of which no tinker ever jumped." The grin came up, bright as minted silver, five days from a lime-stinking pump and all the way home. "Wait'll you see what I made it out of."
+
+---
+
+*Her turn (the author, verbatim):*
+
+> She follows, laughing, giggling, and sings:
+> "Péh trouz zou ar en doar
+> Péh kan a gleúan me
+> Na kaeret er boehieú e za lein eun né
+> Eled, lavaret d'emb eit petra e kannet?
+> Peneú éted ar zé e zou arriú er bed?"
+
+---
+
+Faolan stopped dead in the middle of Baltimore Street.
+
+The procession piled up gently behind him — girls, madam, corporal, boy — and he stood there in the gold light with his head tipped like a dog hearing a far-off cart, while his wife of one hour walked on ahead of him, laughing, giggling, and singing in a language that not one soul on the street possessed.
+
+"That's — " He started after her, caught her hand, walked sideways to keep her face in view while the song went on. "Katie. *Katie.* That's not Irish. And it's not the Italian, and it's not French, though it's after standin' next to French at a fair — " and then it landed, some sound off some morning long ago, and his face went wide open. "*Breton.* That's the fish-talk! The Brittany boats, woman — they'd put into Galway when I was a gothlin, the cousin-boats, and the crews'd come up the quay talkin' exactly that — Irish gone through deep water, the priests called them our kin off the drowned side of France. I stood on a bollard once a whole mornin' listenin' and understood every third word and not one of them in a row." He wheeled around her, walking backward up his own wedding street, delighted past all management. "Where in the name of the holy fairs does me *wife* keep *Breton*? Irish you follow, Italian you're bred to, English you use like a razor, your father's copperplate in your hands — and now there's a whole third country in your mouth I never knew was there. I've not been married an hour and the inventory's already deeper nor the manifest. What ELSE is in the holds, woman? Is there Turkish? Will I find out in October there's *Turkish*?"
+
+And then the tune itself finished arriving through his delight, and he tipped his head the other way, and the grin went slow and wondering.
+
+"And hold now — hold. That air. That's a *carol*, or I'm a bishop's aunt. That's a Christmas shape on that tune — that's angels'-business music, that is; I'd know the cut of it in any tongue on earth; me mother had twenty of them and every one walks just that way." He looked at her — July gold on the street, chicory in her fist, lime and war three streets off in every direction, and his bride singing Christmas in fish-talk on the walk home from her own wedding — and he shook his head like a man declining to wake from something. "Married sixty minutes and she's after openin' Christmas in July on Baltimore Street.
+
+"So out with it, Mrs. Sloan." He drew her hand through his arm and matched her step, bending close, the whole procession trailing gold behind them. "What's the angels sayin'? Deal me the words — for if there was ever a day I'd want the news the angels was askin' after, it's this one."

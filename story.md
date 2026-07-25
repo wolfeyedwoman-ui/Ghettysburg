@@ -1904,3 +1904,21 @@ He walked a few paces in silence — a rare enough event that the procession beh
 "And Katie — the not-knowin' never weakened it one grain, so let no scruple start up in you. Half of Ireland prays in Latin it doesn't have, and the prayers arrives regardless. The words knew their business." The grin came home then, soft at its edges, as the gate rose up before them and the house beyond it stood glowing — every window lit, the smell of a supper the girls must have run ahead to start, Het's silhouette already commanding something in the hall, the whole hive turned gold. He put his hand on the gate, and paused, and looked at his wife in the last of the light.
 
 "In with us, so, Mrs. Sloan. There's a supper wants eatin', a house wants dancin', and at full dark — " the latch lifted under his hand, " — there's a budget in Het's garden shed with a canvas over it, and the second weddin' of the day."
+
+---
+
+*Her turn (the author, verbatim):*
+
+> "It was Christmas when she sang it. I was there with my parents and my sisters visiting the grave of my grandfather. The woman was singing alone to a small grave with a small stone, a child's grave, perhaps."
+
+---
+
+His hand stayed on the latch, and did not lift it, and the gold went on going down behind the house while he stood with the picture she'd just handed him: Christmas; a family at an undertaker's grave; and off across the stones, alone, a woman singing the angels' news to a small stone over a small grave.
+
+"A child's grave," he said, low. "At Christmas. Then it wasn't brave theology at all, a stór — it was plainer and it was bigger. The child couldn't come to Christmas." He looked at her. "So she carried Christmas to the child. The one verse a mother could still give it — *a blessed babe is born for you* — sung to the ground, because it had been true once, and she'd not let the ground make a liar of it." He shook his head, slow, the way he'd shaken it over the two-faced coin. "And no keen. Mind that. She'd have keened it fresh, that woman — the keen comes first, it has to. But by that Christmas she was done keenin' and gone on to the other work: the *keepin'*. Visitin'. Bringin' the season to the grave like you'd bring it to a house. My people does the same — we sings to our dead at the pattern-days; the settled think it morbid and it's the opposite of morbid entire. It's *housekeepin'*, Katie. For the ones that can't keep their own.
+
+"And look where you was standin' when it come to you." The wonder arrived now, quiet, the beads-register. "At Solferino's grave. Your grandda — the man with the casket hands, that buried half a town gentle, that wore a battlefield's name his whole life before the world knew it was one — you stood on *his* ground, a girl among your sisters — " the smallest pause; a new item entered the manifest, *sisters*, filed without pressing, years of inventory ahead and no hurry, " — and a stranger's grief handed you its song across the stones, and you took it whole, not knowin', and carried it thirty years to a town of graves and sang it walkin' home from your weddin'. That's not chance, Mrs. Sloan. That's *apprenticeship*. The trade's been passin' through you since you was a girl in a churchyard — his hands, her song, your carryin'. Everything about you was a long time in the makin', and I'm after gettin' the benefit entire, and I know it.
+
+"And I'll deal you one thing more, and then we'll go in and be danced off our feet." The latch lifted; the house's noise and light leaned out at them, supper and girls and a piano finding its courage; and he bent close, so it went to her and no further, the last quiet cargo of the walk. "That song's done thirty years at gravesides — it come to you at one and it's been true to its trainin' ever since. But if the seed sticks, a stór — " his hand, one second, light against the blue silk at her waist, " — then some evening next spring you'll sing it over a *cradle*, and the poor verse will finally get to do the work it was wrote for. And somewhere that Breton woman will feel the weight come off her song at last, and never know why. Songs wants their proper use, same as people.
+
+"Now — " and the grin came up final and full as the door swung to meet them, Het's silhouette already in it, the whole gold hive beyond, " — in with us, wife. We're expected."

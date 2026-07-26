@@ -2032,3 +2032,29 @@ A tinsmith's box, the old kind, the road kind — but built new, this week, in s
 "Now — the last of the day's weddin's, and the first one my people would count." His voice lifted just enough for the ring to hold it: the girls, the Lane, the madam, the one-eyed corporal, two old women of two old lands standing side by side. "There's no priest to it and no paper. The budget is the livin' — the tools and the road and the trade and the roof-when-there's-one, all in the one box. And the two of you jump it *together*, holdin' on, and land *together* on the far side — and that's the marriage, entire, said in the only language the road ever wrote down." His hand closed around hers, the anchor grip, the singer's grip, and the moon lay on the grass and the box and the blue silk, and the ring of every kind of person the war had left lying around leaned in, and Faolan Sloan looked at his wife with the whole of the further-back thing standing in the open, and gathered her to the count.
 
 "On the three, Mrs. Sloan. *A haon* — " their hands locked, " — *a dó* — "
+
+---
+
+*Her turn (the author, verbatim):*
+
+> She jumps with him.
+
+---
+
+"*— a trí!*"
+
+They jumped.
+
+And for one instant — one clean suspended instant that every witness in that garden would keep for the rest of their separate lives — neither of them stood on Gettysburg at all. Two people in the July moonlight, hands locked, over a box built out of everything the war had broken: the crate that carried the cartridges, the canteens of both thirsts, the leather of the horse that never chose a side, the two enemy buckles jawed together underneath them holding the whole thing shut — and above it, for the space of a heartbeat, nothing but a tinker and a bride in the air, clear of all of it, carrying nothing but each other.
+
+Then the grass took them — *together*, knees bending together, her hand in his hand and his arm around her before her heels had settled — landed, standing, married in the last of the day's three languages: the law's, the Church's, and now the road's.
+
+The garden came apart. The fiddle and the banjo hit the same downbeat as if they'd rehearsed it for years; the ring roared; the girls of the house and the women of the Lane made one single sound between them with no seam in it anywhere; and Corporal Dan Riordan, awake at precisely the right moment for the first time in his military career, raised the rescued glass that had survived his entire sleep and gave it the old formula, the one his people said over every new-made thing, boat or house or marriage: "*God bless the work!*" And from the other side of the ring, in the river-under-ice voice, Mother Prue sent one line up over the cheering like a bird released — *yes, Lord* — and the two blessings crossed in the air over the budget and went up together into the July dark, which held them both without any difficulty at all, having room.
+
+The night ended the way the good ones do — by degrees, and reluctantly. Long Lane went home down the dark gardens the way it had come, lamps swinging low, handshakes at the gate; Zeke Freeman's grip on Faolan's arm at parting said the whole of what it said, and his bow over Katie's hand was the courtliest thing the garden had seen all evening, and he walked home carrying a road with mile-markers on it for the first night in three weeks. Doc Sparrow was sent home humming. Riordan was aimed at the field camp with his sacramental-duties pass pinned to him like a label on a parcel. The girls went up trailing shoes and hairpins. Het stood in her doorway the last of it, glass in hand, watching the married pair cross her moonlit garden, and said nothing at all, and let the whole unsaid column of it stand in her face for exactly three seconds, and closed the door on the finest night her house had ever held.
+
+The budget came up the stairs with them — of course it did; a tinker's box sleeps under a tinker's roof — and Faolan set it down at the foot of the iron bed, the first furniture the marriage owned. The room received its people: the two-faced coin on the nightstand; the row of pins, spent and re-spent and come home again; the rosary on the bedpost with its back turned as instructed and its opinion kept; the fields of Gettysburg standing in the water jug, chicory blue gone black in the dark. The candle burned; the candle was pinched; and what the wedding night held then was theirs — all law, all rite, all road agreeing at last on the one point — and no one else's, and none of this page's.
+
+Outside, the moon crossed the garden. The canvas lay folded on the grass by the shed. The town slept its curfewed sleep; the ridges held their forty thousand stories; and south along the Taneytown road the trenches kept the five hundred men who knew, every one of them, exactly what county they were in — while up in a small room under a sloped roof, for the first time in the whole history of that summer, two people slept who knew exactly where they were going.
+
+*— end of Part II —*
